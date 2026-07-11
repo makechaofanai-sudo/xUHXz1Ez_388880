@@ -1,0 +1,1605 @@
+# 今日热点快报
+
+**2026-07-11(UTC+8)**
+
+---
+
+## 1. 哈兰德晒日光浴被拍 反手回拍球迷
+
+2026年美加墨世界杯1/4决赛，英格兰即将对阵挪威。哈兰德酒店晒日光浴，被球迷远距离拍摄，哈兰德不语直接一个反拍。
+
+**来源：** [https://jksrjhq\.com/video\-play/xiao\-jie\-jie\-202823\-douban\-1](<https://jksrjhq.com/video-play/xiao-jie-jie-202823-douban-1>)
+
+---
+
+## 2. 欧盟拿“北京鸭”开刀是有多不自信
+
+当地时间7月9日，欧盟委员会正式对来自中国的“北京鸭”发起反倾销调查。欧盟这种将常规贸易问题无限上纲上线、试图构建无死角贸易防御网的做法，非但无法修补其产业短板，反而在自我设限中暴露了其深层的不自信。
+
+**来源：** [https://jksrjhq\.com/video\-play/xiao\-nong\-nv\-de\-tou\-xing\-nong\-chang\-106031\-default\-1](<https://jksrjhq.com/video-play/xiao-nong-nv-de-tou-xing-nong-chang-106031-default-1>)
+
+---
+
+## 3. 《功夫女足》上映 AI预测总票房超10亿
+
+7月11日，周星驰最新喜剧电影《功夫女足》正式上映。截至7月11日10时9分，影片《功夫女足》票房突破9000万。全天预测票房1\.95亿，AI预测总票房10\.15亿。
+
+**来源：** [https://jksrjhq\.com/video\-play/xiao\-nong\-nv\-de\-tou\-xing\-nong\-chang\-106031\-youzhi\-1](<https://jksrjhq.com/video-play/xiao-nong-nv-de-tou-xing-nong-chang-106031-youzhi-1>)
+
+---
+
+## 4. 迪丽热巴拍摄全程素颜 拒用替身
+
+7月10日，随着周星驰导演新作《功夫女足》首支长预告的发布，迪丽热巴在片场花絮中的剖白迅速引发热议。她在片中饰演峨眉队8号主力前锋“钰珑”，一个性格果敢刚强、胜负欲极强的球队进攻核心。为了贴合角色她全程素颜并且拒用替身。
+
+**来源：** [https://jksrjhq\.com/video\-play/xin\-bao\-bei\-202689\-default\-1](<https://jksrjhq.com/video-play/xin-bao-bei-202689-default-1>)
+
+---
+
+## 5. 冉莹颖自曝曾多次想离婚
+
+7月6日，拳王邹市明妻子冉莹颖在《姐姐当家2》看片会上自曝曾多次想离婚，甚至三次前往民政局。她表示参加节目最初是为救赎婚姻，但最终发现救赎的是自己。
+
+**来源：** [https://jksrjhq\.com/video\-play/xin\-ge\-ge\-202567\-default\-1](<https://jksrjhq.com/video-play/xin-ge-ge-202567-default-1>)
+
+---
+
+## 6. 老祖宗留下的东西我们反倒不能用吗
+
+近期，LV诉茉莉奶白商标侵权案一审宣判，茉莉奶白被判赔1030万元。由于LV的“老花”与中国柿蒂纹、宝相花同源，这一判决引发广泛讨论。中国传统纹样作为公共文化资源，是全社会共享的文化财富。企业将公共文化资源进行创造性改造、转化为注册商标，是法律所允许的正当权利。但这种转化，并不能对公共文化资源先占独享。
+
+**来源：** [https://jksrjhq\.com/video\-play/xin\-ge\-ge\-202567\-douban\-1](<https://jksrjhq.com/video-play/xin-ge-ge-202567-douban-1>)
+
+---
+
+## 7. 香港生殖中心9个胚胎样本错8个
+
+近日，香港希愈生殖医学中心被曝发生人工受孕胚胎活检样本严重错配事故，9个样本错8个。目前，香港监管部门已将希愈原有的17项合法生殖医疗服务大幅缩减，仅保留配子、胚胎储存3项基础服务，其余14项治疗服务全部暂停。鉴于事件极可能涉及人为操作及刑事成分，香港警方重案组已全面介入彻查。
+
+**来源：** [https://jksrjhq\.com/video\-play/xin\-guan\-ren\-wo\-yao\-105564\-douban\-1](<https://jksrjhq.com/video-play/xin-guan-ren-wo-yao-105564-douban-1>)
+
+---
+
+## 8. 中国无人机“违例”操作 全网破防
+
+连日来，广西多地出现洪涝灾害。洪灾中，救援人员用无人机调运物资、转移群众。原则上，无人机不许吊人，但人民大于原则。中国无人机这波“违例”操作，全网破防！
+
+**来源：** [https://jksrjhq\.com/video\-play/xing\-ai\-da\-shi\-di\-er\-ji\-104152\-youzhi\-1](<https://jksrjhq.com/video-play/xing-ai-da-shi-di-er-ji-104152-youzhi-1>)
+
+---
+
+## 9. 霍思燕：鹦鹉不是我的
+
+近日，一张霍思燕身穿旗袍、与一只蓝金刚鹦鹉的合影在网络上疯狂流传。照片里人与鹦鹉气质都相当“霸气”，加上她家爱犬“霍蜜蜡”刚在意大利世界杯犬展夺冠，网友们调侃霍思燕是“御兽宗宗主”，还编出了“鹦鹉也夺冠”的故事。霍思燕辟谣：鹦鹉不是我的，是在泰国宠物展上碰到蹭拍留念。
+
+**来源：** [https://jksrjhq\.com/video\-play/xing\-ai\-da\-shi\-di\-er\-ji\-104152\-youzhi\-8](<https://jksrjhq.com/video-play/xing-ai-da-shi-di-er-ji-104152-youzhi-8>)
+
+---
+
+## 10. 女儿女婿自杀后妈妈投身防性侵宣传
+
+广东女子黄汶雯幼年遭亲属性侵导致长期心理创伤，2022年，黄汶雯和母亲吴梅坦白，但吴梅没有选择报警。2024年，黄汶雯在亲密关系中出现应激反应，在丈夫谢家振支持下报警，因无法证实犯罪事实发生，深圳警方作出不予立案决定，黄汶雯及丈夫因此相继自杀。近年来，其母吴梅投身防性侵宣传，通过课程学习、社区宣讲警示家长。
+
+**来源：** [https://jksrjhq\.com/video\-play/xing\-ai\-wei\-xiao\-bao\-zhi\-wan\-nv\-da\-wang\-106057\-default\-1](<https://jksrjhq.com/video-play/xing-ai-wei-xiao-bao-zhi-wan-nv-da-wang-106057-default-1>)
+
+---
+
+## 11. 交警巡逻时发现驾驶员持“枪”
+
+近日，交警巡逻时，发现一车上驾驶员持“枪”。经拦截检查，该物品实为电动枪形玩具，但若装填铅弹则会具备杀伤力，枪形物随即被移交派出所处理。
+
+**来源：** [https://jksrjhq\.com/video\-play/xing\-fen\-de\-nv\-da\-xue\-sheng\-men\-yu\-hei\-ren\-zhu\-ren\-102219\-youzhi\-1](<https://jksrjhq.com/video-play/xing-fen-de-nv-da-xue-sheng-men-yu-hei-ren-zhu-ren-102219-youzhi-1>)
+
+---
+
+## 12. 巴威加速直奔浙闽 最强风雨时段来了
+
+从11日凌晨开始，“巴威”明显提速，以每小时30\-35公里的速度向西北方向快速移动，直奔浙闽沿海。今天开始，我们将迎来“巴威”风雨影响最强时段。
+
+**来源：** [https://jksrjhq\.com/video\-play/xing\-fu\-jiu\-shi\-chi\-fan\-shui\-jue\-deng\-dai\-59267\-default\-1](<https://jksrjhq.com/video-play/xing-fu-jiu-shi-chi-fan-shui-jue-deng-dai-59267-default-1>)
+
+---
+
+## 13. 现在说巴威直奔山东有点早
+
+7月11日，巴威直奔山东引发热议。中国天气网发文：能理解大家对台风“巴威”的关注，但说直奔山东是不是早了点，对山东的强降雨影响主要在13日前后。现在的“巴威”距离浙闽沿海都还有400多公里，要先直奔浙江、福建，登陆后深入内陆的路径还有变数，可能往江西或安徽或河南或江苏走，之后再考虑山东。
+
+**来源：** [https://jksrjhq\.com/video\-play/xing\-gan\-mo\-te\-102129\-default\-1](<https://jksrjhq.com/video-play/xing-gan-mo-te-102129-default-1>)
+
+---
+
+## 14. 外出小于1小时不建议关空调
+
+近日，多地高温，大热天里，空调成了不少家庭的消暑“刚需”。外出少于1小时建议不要关空调：空调重启一次耗的电，相当于连续开二三十分钟，外出时将温度调高1\-2°C即可。
+
+**来源：** [https://jksrjhq\.com/video\-play/xing\-gan\-mo\-te\-102129\-youzhi\-1](<https://jksrjhq.com/video-play/xing-gan-mo-te-102129-youzhi-1>)
+
+---
+
+## 15. 35岁女高管立遗嘱将千万资产赠小姨
+
+沈阳一名35岁未婚女高管，将千万个人资产通过遗赠全部赠予悉心照料她的小姨。她与父母关系疏远，办理流程合规并增设资产隔离条款。该遗赠合法，但她仍需赡养父母，近年青年高净值人群立遗赠案例持续增多。
+
+**来源：** [https://jksrjhq\.com/video\-play/xing\-gan\-nv\-lang\-105422\-douban\-1](<https://jksrjhq.com/video-play/xing-gan-nv-lang-105422-douban-1>)
+
+---
+
+## 16. 菲律宾被整破防了
+
+7月10日至11日，中国学者提出巴丹群岛主权主张并发布41页报告驳斥菲律宾南海主张的法理依据，菲律宾被整破防了，菲律宾国防部长特奥多罗指责中方“意图控制太平洋”。
+
+**来源：** [https://jksrjhq\.com/video\-play/xing\-mi\-gong\-200061\-default\-1](<https://jksrjhq.com/video-play/xing-mi-gong-200061-default-1>)
+
+---
+
+## 17. 男子被困房顶 好友划泡沫板相救
+
+男子被困房顶 好友划泡沫板相救
+
+**来源：** [https://jksrjhq\.com/video\-play/xing\-mi\-gong\-200061\-douban\-1](<https://jksrjhq.com/video-play/xing-mi-gong-200061-douban-1>)
+
+---
+
+## 18. 西班牙2\-1绝杀比利时
+
+北京时间11日，2026美加墨世界杯1/4决赛，西班牙2\-1战胜比利时，成为本届世界杯第二支四强球队。半决赛，他们将对阵法国队。
+
+**来源：** [https://jksrjhq\.com/video\-play/xing\-shi\-huang\-yan\-102126\-default\-1](<https://jksrjhq.com/video-play/xing-shi-huang-yan-102126-default-1>)
+
+---
+
+## 19. 雷军让卖车的和卖房的都沉默了
+
+7月10日，雷军官宣小米全新SUV系列“澎程”，车内布局的“户型图”让卖车的和卖房的都沉默了！网友：第一次在车上看到户型图。
+
+**来源：** [https://jksrjhq\.com/video\-play/xing\-shi\-huang\-yan\-102126\-douban\-1](<https://jksrjhq.com/video-play/xing-shi-huang-yan-102126-douban-1>)
+
+---
+
+## 20. 世界杯期间京东即时零售冰品爆火
+
+2026年美加墨世界杯赛程过半，带火即时零售消费。京东秒送平台上的冰啤酒、果切、运动服饰等多品类销售迎来爆发式增长。数据显示，世界杯期间，京东秒送冰啤酒销量同比增长超98%，冰淇淋同比增长59%，冰果切同比增长111%。
+
+**来源：** [https://jksrjhq\.com/video\-play/xing\-shu\-da\-heng\-106400\-youzhi\-1](<https://jksrjhq.com/video-play/xing-shu-da-heng-106400-youzhi-1>)
+
+---
+
+## 21. 一觉醒来巴威又睁眼了
+
+今年第九号台风“巴威”11日零时再度增强为强台风级，11日6点，“巴威”的中心位于距离浙闽交界东偏南方向约540公里，中心最大风力有14级。预计，“巴威”将以每小时30至35公里的速度向西北方向快速移动，强度变化不大。
+
+**来源：** [https://jksrjhq\.com/video\-play/xing\-zai\-gou\-la\-10420\-default\-1](<https://jksrjhq.com/video-play/xing-zai-gou-la-10420-default-1>)
+
+---
+
+## 22. 周星驰官宣新一代星女郎雪野
+
+7月11日，周星驰通过经纪人陈震宇正式官宣新人演员雪野为新一代“星女郎”，她在同日上映的电影《功夫女足》中饰演同名角色，这是继林允之后时隔八年周星驰再度力捧的新人。
+
+**来源：** [https://jksrjhq\.com/video\-play/xing\-zan\-zhu\-194885\-douban\-1](<https://jksrjhq.com/video-play/xing-zan-zhu-194885-douban-1>)
+
+---
+
+## 23. “我也是第一次用无人机运人”
+
+受台风“美莎克”残余环流持续影响，连日来，广西多地遭遇严重洪涝灾害，洪水围困村庄、道路中断、通信失联。一批科技装备冲上一线，搭起了一条条“生命线”，被网友称为“科技最好的样子”。32岁的陈思毅，就是带着科技装备冲到救援一线的一员，这次救援行动，也是他第一次用无人机运人。
+
+**来源：** [https://jksrjhq\.com/video\-play/xu\-xu\-ru\-sheng\-171948\-douban\-1](<https://jksrjhq.com/video-play/xu-xu-ru-sheng-171948-douban-1>)
+
+---
+
+## 24. 孕妇欲跳站台轻生 值班员一把拉回
+
+近日，列车进站前，一名孕妇欲跳下站台轻生，值班员发现异常后重点盯控，危急时刻将其一把拉回护在身下。
+
+**来源：** [https://jksrjhq\.com/video\-play/xue\-lian\-106439\-default\-1](<https://jksrjhq.com/video-play/xue-lian-106439-default-1>)
+
+---
+
+## 25. 中餐馆老板：哈兰德像小太阳少有低落
+
+近日，来自哈兰德家乡挪威布吕讷小镇的中餐馆老板王惠珠表示：哈兰德像小太阳，少有低落，也不会发脾气。
+
+**来源：** [https://jksrjhq\.com/video\-play/xue\-lian\-106439\-douban\-1](<https://jksrjhq.com/video-play/xue-lian-106439-douban-1>)
+
+---
+
+## 26. 霉霉婚后首现身
+
+北京时间7月11日，霉霉Taylor Swift和老公Travis Kelce在婚礼后首现身，两人牵手参加好友婚礼。霉霉一身粉色印花抹胸裙，草莓熊全黑西装，期间耳语交流，甜蜜恩爱。
+
+**来源：** [https://jksrjhq\.com/video\-play/xue\-lian\-106440\-default\-1](<https://jksrjhq.com/video-play/xue-lian-106440-default-1>)
+
+---
+
+## 27. 多库6000万身价隐身
+
+7月11日，世界杯四分之一决赛，比利时1\-2不敌西班牙出局。比赛中效力于曼城的多库首发出战打满全场，但未能有所建树，目送球队出局。24岁的多库首次代表比利时参加世界杯，出战了全部的6场比赛，共计329分钟，但贡献0球0助攻。身价6000万欧的他并未拿出在俱乐部时的进攻效率，几乎整届世界杯都在隐身。
+
+**来源：** [https://jksrjhq\.com/video\-play/xue\-lian\-106440\-douban\-1](<https://jksrjhq.com/video-play/xue-lian-106440-douban-1>)
+
+---
+
+## 28. 中国为“黄金气体”设闸
+
+7月10日，商务部、海关总署发布公告2026年第29号，依据《中华人民共和国对外贸易法》相关规定，决定对氦气实施临时禁止出口管理。氦气被誉为“黄金气体”，是极度稀缺的战略性资源。临时禁止出口管理，是保障氦气资源安全、引导氦气规范流通，进而推动我国氦气及相关行业高质量发展的重要举措，有利于维护全球气体供应链稳定。
+
+**来源：** [https://jksrjhq\.com/video\-play/xue\-zhu\-185700\-default\-1](<https://jksrjhq.com/video-play/xue-zhu-185700-default-1>)
+
+---
+
+## 29. 姆巴佩亚马尔从俱乐部对抗到世界杯
+
+北京时间7月15日03:00，世界杯半决赛法国VS西班牙，姆巴佩和亚马尔从俱乐部对抗到世界杯，强强对决谁能晋级引发热议。
+
+**来源：** [https://jksrjhq\.com/video\-play/ya\-dang\-194877\-default\-1](<https://jksrjhq.com/video-play/ya-dang-194877-default-1>)
+
+---
+
+## 30. 上次发布暴雨红色预警是两年前
+
+今年第9号台风“巴威”来袭，11日开始，风雨将进入最强影响时段。中央气象台7月11日10时升级发布暴雨红色预警。红色预警是最高级别的暴雨预警，上一次中央气象台发布暴雨红色预警，还是两年前的2024年6月29日至30日。
+
+**来源：** [https://jksrjhq\.com/video\-play/ya\-dang\-194877\-douban\-1](<https://jksrjhq.com/video-play/ya-dang-194877-douban-1>)
+
+---
+
+## 31. 维尼修斯公开道歉
+
+对于巴西队无缘2026美加墨世界杯八强，巴西队球星维尼修斯当地时间10日在社交平台上发帖道歉。“挫败感很强。”维尼修斯当天在帖子中称，“我们拥有一支实力足以取得更好成绩的队伍，但我们未能如愿。我为此道歉，我将为我们重返世界之巅的梦想而战。”
+
+**来源：** [https://jksrjhq\.com/video\-play/yan\-chi\-191703\-douban\-1](<https://jksrjhq.com/video-play/yan-chi-191703-douban-1>)
+
+---
+
+## 32. 三星堆有最新发现
+
+四川省文物考古研究院10日公布三星堆青铜器最新研究成果，专家们通过对青铜顶尊跪坐人像的深入研究发现，这件器物并非抽象的神话符号，而是真实祭祀仪典的生动再现，反映出数千年前古蜀先民对神灵的崇拜。
+
+**来源：** [https://jksrjhq\.com/video\-play/ye\-ban\-mai\-dou\-jiang\-105521\-default\-1](<https://jksrjhq.com/video-play/ye-ban-mai-dou-jiang-105521-default-1>)
+
+---
+
+## 33. 时隔两年再发暴雨“红警” 意味什么
+
+中央气象台11日升级发布最高级别的暴雨红色预警，这是今年首个，也是时隔两年再度出现的暴雨“红警”。当暴雨红色预警发布时，说明一天降雨的工作量在3小时之内就完成了，可见雨势之急、雨量之大，疾风骤雨说的就是这个情况。
+
+**来源：** [https://jksrjhq\.com/video\-play/ye\-ban\-mai\-dou\-jiang\-105521\-youzhi\-1](<https://jksrjhq.com/video-play/ye-ban-mai-dou-jiang-105521-youzhi-1>)
+
+---
+
+## 34. 南昌通报“业委会副主任卷走161万”
+
+7月11日，南昌通报“小区业委会副主任卷走161万失联”：小区业委会已向公安机关报案，公安机关已正式立案侦查。
+
+**来源：** [https://jksrjhq\.com/video\-play/ye\-wan\-de\-zui\-e\-102249\-default\-1](<https://jksrjhq.com/video-play/ye-wan-de-zui-e-102249-default-1>)
+
+---
+
+## 35. 习近平同金正恩互致贺电
+
+习近平同朝鲜劳动党总书记、国务委员会委员长金正恩就《中朝友好合作互助条约》签订65周年互致贺电。
+
+**来源：** [https://jksrjhq\.com/video\-play/ye\-ying\-jia\-de\-da\-zuo\-zhan\-203038\-default\-1](<https://jksrjhq.com/video-play/ye-ying-jia-de-da-zuo-zhan-203038-default-1>)
+
+---
+
+## 36. 台风巴威登陆地点有变
+
+最新预计台风“巴威”将于7月11日半夜前后在浙江省苍南至三门一带登陆，登陆地点有变。此前预报称“巴威”将于12日凌晨在浙江台州至福建福鼎一带沿海登陆。
+
+**来源：** [https://jksrjhq\.com/video\-play/yi\-ge\-nv\-hai\-he\-yi\-ge\-nan\-hai\-194876\-default\-1](<https://jksrjhq.com/video-play/yi-ge-nv-hai-he-yi-ge-nan-hai-194876-default-1>)
+
+---
+
+## 37. 浙江海边已掀起10多米巨浪
+
+7月10日，受今年第9号强台风“巴威”外围环流影响，台州温岭石塘金沙滩海域风浪骤增，狂风裹挟潮水掀起十余米巨浪，浪墙接连猛烈撞击礁石与海岸堤坝，白色浪花漫天飞溅，场面惊心动魄。
+
+**来源：** [https://jksrjhq\.com/video\-play/yi\-ge\-nv\-ren\-de\-shen\-fen\-zheng\-ming\-106264\-default\-1](<https://jksrjhq.com/video-play/yi-ge-nv-ren-de-shen-fen-zheng-ming-106264-default-1>)
+
+---
+
+## 38. 如何“顶格”应对台风巴威
+
+近日，台风“巴威”进入24小时警戒，如何“顶格”应对？山区的隐患不仅仅是地灾，还有洪水和山洪，各部门、各区需严格地按照预案落实防范措施。根据雨情、水情的变化进行动态研判，必要的时候对风险区在现有的人员转移基础上进行扩面转移，要规避风险，确保应转尽转、不落一户。
+
+**来源：** [https://jksrjhq\.com/video\-play/yi\-lu\-xiang\-xi\-106403\-youzhi\-1](<https://jksrjhq.com/video-play/yi-lu-xiang-xi-106403-youzhi-1>)
+
+---
+
+## 39. 温州商铺老板为挡台风砌了一堵墙
+
+温州商铺老板为挡台风砌了一堵墙
+
+**来源：** [https://jksrjhq\.com/video\-play/yi\-ye\-huang\-di\-103582\-youzhi\-1](<https://jksrjhq.com/video-play/yi-ye-huang-di-103582-youzhi-1>)
+
+---
+
+## 40. 周星驰电影《功夫女足》票房破亿
+
+数据显示，截至7月11日11时32分，影片《功夫女足》票房突破1亿。
+
+**来源：** [https://jksrjhq\.com/video\-play/yin\-ni\-er\-lai\-202958\-default\-1](<https://jksrjhq.com/video-play/yin-ni-er-lai-202958-default-1>)
+
+---
+
+## 41. 为什么不能用炸弹摧毁台风
+
+为什么不能用炸弹摧毁台风？主要有三个方面的原因：一、能量与体量差距悬殊；二、爆炸破坏无法持续；三、爆炸反为台风“充能”。
+
+**来源：** [https://jksrjhq\.com/video\-play/yin\-si\-yu\-wang\-202690\-douban\-1](<https://jksrjhq.com/video-play/yin-si-yu-wang-202690-douban-1>)
+
+---
+
+## 42. 瓜农2200斤西瓜收瓜贩仅出价20元
+
+近日，河南西瓜滞销，瓜农大姨含泪发声：收瓜贩想用20元买走2200斤西瓜！希望夏天甜的不只是瓜，还有瓜农的日子。
+
+**来源：** [https://jksrjhq\.com/video\-play/yin\-yao\-hao\-qing\-106154\-default\-1](<https://jksrjhq.com/video-play/yin-yao-hao-qing-106154-default-1>)
+
+---
+
+## 43. 台风巴威最新动态
+
+台风“巴威”逼近我国东部沿海，记者抵达台风影响核心区，为您带来第一手现场实况。
+
+**来源：** [https://jksrjhq\.com/video\-play/yin\-yao\-hao\-qing\-106154\-douban\-1](<https://jksrjhq.com/video-play/yin-yao-hao-qing-106154-douban-1>)
+
+---
+
+## 44. “龙蟒组合”时隔5年合体
+
+2026全锦赛双打名单正式出炉！马龙许昕的龙蟒组合，时隔五年再度合体征战男双。
+
+**来源：** [https://jksrjhq\.com/video\-play/yin\-yu\-de\-dai\-jia\-200062\-default\-1](<https://jksrjhq.com/video-play/yin-yu-de-dai-jia-200062-default-1>)
+
+---
+
+## 45. 最高级别！今年首个暴雨红色预警发布
+
+7月11日10时，中央气象台发布暴雨红色预警：多地有暴雨，部分地区有大暴雨，局地特大暴雨。同时部分地区伴有短时强降水，局地有雷暴大风或冰雹等强对流天气。
+
+**来源：** [https://jksrjhq\.com/video\-play/yin\-yu\-de\-dai\-jia\-200062\-douban\-1](<https://jksrjhq.com/video-play/yin-yu-de-dai-jia-200062-douban-1>)
+
+---
+
+## 46. 杭州暴雨大量车辆被淹系谣言
+
+7月5日，建德公安接到群众报警，反映有人在网络平台发布建德暴雨洪水虚假视频，不实信息快速传播，引发不良社会影响。接报后，警方立即开展核查，迅速锁定违法嫌疑人。经查，违法行为人廖某某为博取网络流量、吸引大众关注，动歪心思炮制虚假灾情内容。目前，公安机关已依法对廖某某作出行政拘留七日的行政处罚。
+
+**来源：** [https://jksrjhq\.com/video\-play/you\-ai\-cai\-you\-xing\-185575\-default\-1](<https://jksrjhq.com/video-play/you-ai-cai-you-xing-185575-default-1>)
+
+---
+
+## 47. 新娘结婚睡过头醒来看见满屋人
+
+7月11日，山东枣庄新娘代女士婚礼前一日因疲惫睡至近11点，醒来发现满屋亲友才记起婚期，按当地两天婚礼习俗未影响流程。
+
+**来源：** [https://jksrjhq\.com/video\-play/you\-ai\-cai\-you\-xing\-185575\-douban\-1](<https://jksrjhq.com/video-play/you-ai-cai-you-xing-185575-douban-1>)
+
+---
+
+## 48. 浙江一厂区连夜给罗汉松穿金钟罩
+
+14级强台风“巴威”逼近，台州临海深夜拉响防灾警报！温岭一厂区连夜电焊，给罗汉松穿上“金钟罩”。
+
+**来源：** [https://jksrjhq\.com/video\-play/you\-li\-he\-lu\-zhu\-102138\-default\-1](<https://jksrjhq.com/video-play/you-li-he-lu-zhu-102138-default-1>)
+
+---
+
+## 49. 救援人员10秒钟吃完半桶泡面
+
+7月9日，广西贵港抗洪救援中，救援人员从清晨5点连续奋战至下午2点，安全转移6000余名师生后，仅用10秒狼吞虎咽吃完半桶泡面充饥，随即奔赴下一救援现场。
+
+**来源：** [https://jksrjhq\.com/video\-play/you\-li\-he\-lu\-zhu\-102138\-douban\-1](<https://jksrjhq.com/video-play/you-li-he-lu-zhu-102138-douban-1>)
+
+---
+
+## 50. 宇树机器人给猪做手术登上Nature
+
+近日，国际顶刊Nature发表了一篇题为《人形机器人用于外科手术的活体可行性研究》的论文。研究团队选用了高校实验室常用的宇树科技G1人形机器人，让它手持腹腔镜器械，通过遥操的方式为两头活猪完成了腹腔镜胆囊切除术。
+
+**来源：** [https://jksrjhq\.com/video\-play/you\-mie\-de\-nv\-ren\-105474\-default\-1](<https://jksrjhq.com/video-play/you-mie-de-nv-ren-105474-default-1>)
+
+---
+
+## 51. 男子把充话费当暗示 夜闯女邻居家
+
+福建男子李某因帮助同一小区的女租户张某充话费，误认为张某对他有性暗示，于是凌晨闯入张某家中，意图与张某发生性关系。近日，福建省武夷山市人民法院公布了该案判决书，法院判决李某犯非法侵入住宅罪，判处有期徒刑一年六个月。
+
+**来源：** [https://jksrjhq\.com/video\-play/you\-mie\-de\-nv\-ren\-105474\-youzhi\-1](<https://jksrjhq.com/video-play/you-mie-de-nv-ren-105474-youzhi-1>)
+
+---
+
+## 52. 哈兰德晒日光浴被拍 反手回拍球迷
+
+2026年美加墨世界杯1/4决赛，英格兰即将对阵挪威。哈兰德酒店晒日光浴，被球迷远距离拍摄，哈兰德不语直接一个反拍。
+
+**来源：** [https://jksrjhq\.com/video\-play/yu\-ba\-bu\-neng\-di\-er\-ji\-203910\-douban\-2](<https://jksrjhq.com/video-play/yu-ba-bu-neng-di-er-ji-203910-douban-2>)
+
+---
+
+## 53. 欧盟拿“北京鸭”开刀是有多不自信
+
+当地时间7月9日，欧盟委员会正式对来自中国的“北京鸭”发起反倾销调查。欧盟这种将常规贸易问题无限上纲上线、试图构建无死角贸易防御网的做法，非但无法修补其产业短板，反而在自我设限中暴露了其深层的不自信。
+
+**来源：** [https://jksrjhq\.com/video\-play/yu\-ba\-bu\-neng\-di\-er\-ji\-203910\-douban\-5](<https://jksrjhq.com/video-play/yu-ba-bu-neng-di-er-ji-203910-douban-5>)
+
+---
+
+## 54. 《功夫女足》上映 AI预测总票房超10亿
+
+7月11日，周星驰最新喜剧电影《功夫女足》正式上映。截至7月11日10时9分，影片《功夫女足》票房突破9000万。全天预测票房1\.95亿，AI预测总票房10\.15亿。
+
+**来源：** [https://jksrjhq\.com/video\-play/yu\-ba\-bu\-neng\-di\-si\-ji\-203900\-default\-1](<https://jksrjhq.com/video-play/yu-ba-bu-neng-di-si-ji-203900-default-1>)
+
+---
+
+## 55. 迪丽热巴拍摄全程素颜 拒用替身
+
+7月10日，随着周星驰导演新作《功夫女足》首支长预告的发布，迪丽热巴在片场花絮中的剖白迅速引发热议。她在片中饰演峨眉队8号主力前锋“钰珑”，一个性格果敢刚强、胜负欲极强的球队进攻核心。为了贴合角色她全程素颜并且拒用替身。
+
+**来源：** [https://jksrjhq\.com/video\-play/yu\-ba\-bu\-neng\-di\-si\-ji\-203900\-douban\-1](<https://jksrjhq.com/video-play/yu-ba-bu-neng-di-si-ji-203900-douban-1>)
+
+---
+
+## 56. 冉莹颖自曝曾多次想离婚
+
+7月6日，拳王邹市明妻子冉莹颖在《姐姐当家2》看片会上自曝曾多次想离婚，甚至三次前往民政局。她表示参加节目最初是为救赎婚姻，但最终发现救赎的是自己。
+
+**来源：** [https://jksrjhq\.com/video\-play/yu\-ba\-bu\-neng\-di\-si\-ji\-203900\-douban\-10](<https://jksrjhq.com/video-play/yu-ba-bu-neng-di-si-ji-203900-douban-10>)
+
+---
+
+## 57. 老祖宗留下的东西我们反倒不能用吗
+
+近期，LV诉茉莉奶白商标侵权案一审宣判，茉莉奶白被判赔1030万元。由于LV的“老花”与中国柿蒂纹、宝相花同源，这一判决引发广泛讨论。中国传统纹样作为公共文化资源，是全社会共享的文化财富。企业将公共文化资源进行创造性改造、转化为注册商标，是法律所允许的正当权利。但这种转化，并不能对公共文化资源先占独享。
+
+**来源：** [https://jksrjhq\.com/video\-play/yu\-hai\-shuang\-yan\-103277\-default\-1](<https://jksrjhq.com/video-play/yu-hai-shuang-yan-103277-default-1>)
+
+---
+
+## 58. 香港生殖中心9个胚胎样本错8个
+
+近日，香港希愈生殖医学中心被曝发生人工受孕胚胎活检样本严重错配事故，9个样本错8个。目前，香港监管部门已将希愈原有的17项合法生殖医疗服务大幅缩减，仅保留配子、胚胎储存3项基础服务，其余14项治疗服务全部暂停。鉴于事件极可能涉及人为操作及刑事成分，香港警方重案组已全面介入彻查。
+
+**来源：** [https://jksrjhq\.com/video\-play/yu\-he\-ban\-lv\-106348\-default\-1](<https://jksrjhq.com/video-play/yu-he-ban-lv-106348-default-1>)
+
+---
+
+## 59. 中国无人机“违例”操作 全网破防
+
+连日来，广西多地出现洪涝灾害。洪灾中，救援人员用无人机调运物资、转移群众。原则上，无人机不许吊人，但人民大于原则。中国无人机这波“违例”操作，全网破防！
+
+**来源：** [https://jksrjhq\.com/video\-play/yu\-he\-ban\-lv\-106348\-douban\-1](<https://jksrjhq.com/video-play/yu-he-ban-lv-106348-douban-1>)
+
+---
+
+## 60. 霍思燕：鹦鹉不是我的
+
+近日，一张霍思燕身穿旗袍、与一只蓝金刚鹦鹉的合影在网络上疯狂流传。照片里人与鹦鹉气质都相当“霸气”，加上她家爱犬“霍蜜蜡”刚在意大利世界杯犬展夺冠，网友们调侃霍思燕是“御兽宗宗主”，还编出了“鹦鹉也夺冠”的故事。霍思燕辟谣：鹦鹉不是我的，是在泰国宠物展上碰到蹭拍留念。
+
+**来源：** [https://jksrjhq\.com/video\-play/yu\-pu\-tuan\-zhi\-yu\-nv\-xin\-jing\-186039\-douban\-1](<https://jksrjhq.com/video-play/yu-pu-tuan-zhi-yu-nv-xin-jing-186039-douban-1>)
+
+---
+
+## 61. 女儿女婿自杀后妈妈投身防性侵宣传
+
+广东女子黄汶雯幼年遭亲属性侵导致长期心理创伤，2022年，黄汶雯和母亲吴梅坦白，但吴梅没有选择报警。2024年，黄汶雯在亲密关系中出现应激反应，在丈夫谢家振支持下报警，因无法证实犯罪事实发生，深圳警方作出不予立案决定，黄汶雯及丈夫因此相继自杀。近年来，其母吴梅投身防性侵宣传，通过课程学习、社区宣讲警示家长。
+
+**来源：** [https://jksrjhq\.com/video\-play/yu\-ti\-fen\-qing\-102551\-default\-1](<https://jksrjhq.com/video-play/yu-ti-fen-qing-102551-default-1>)
+
+---
+
+## 62. 交警巡逻时发现驾驶员持“枪”
+
+近日，交警巡逻时，发现一车上驾驶员持“枪”。经拦截检查，该物品实为电动枪形玩具，但若装填铅弹则会具备杀伤力，枪形物随即被移交派出所处理。
+
+**来源：** [https://jksrjhq\.com/video\-play/yu\-ya\-gong\-wu\-102149\-default\-1](<https://jksrjhq.com/video-play/yu-ya-gong-wu-102149-default-1>)
+
+---
+
+## 63. 巴威加速直奔浙闽 最强风雨时段来了
+
+从11日凌晨开始，“巴威”明显提速，以每小时30\-35公里的速度向西北方向快速移动，直奔浙闽沿海。今天开始，我们将迎来“巴威”风雨影响最强时段。
+
+**来源：** [https://jksrjhq\.com/video\-play/yu\-ya\-gong\-wu\-102149\-douban\-1](<https://jksrjhq.com/video-play/yu-ya-gong-wu-102149-douban-1>)
+
+---
+
+## 64. 现在说巴威直奔山东有点早
+
+7月11日，巴威直奔山东引发热议。中国天气网发文：能理解大家对台风“巴威”的关注，但说直奔山东是不是早了点，对山东的强降雨影响主要在13日前后。现在的“巴威”距离浙闽沿海都还有400多公里，要先直奔浙江、福建，登陆后深入内陆的路径还有变数，可能往江西或安徽或河南或江苏走，之后再考虑山东。
+
+**来源：** [https://jksrjhq\.com/video\-play/yu\-yan\-kuang\-qing\-105293\-default\-1](<https://jksrjhq.com/video-play/yu-yan-kuang-qing-105293-default-1>)
+
+---
+
+## 65. 外出小于1小时不建议关空调
+
+近日，多地高温，大热天里，空调成了不少家庭的消暑“刚需”。外出少于1小时建议不要关空调：空调重启一次耗的电，相当于连续开二三十分钟，外出时将温度调高1\-2°C即可。
+
+**来源：** [https://jksrjhq\.com/video\-play/yu\-yan\-kuang\-qing\-105293\-douban\-1](<https://jksrjhq.com/video-play/yu-yan-kuang-qing-105293-douban-1>)
+
+---
+
+## 66. 35岁女高管立遗嘱将千万资产赠小姨
+
+沈阳一名35岁未婚女高管，将千万个人资产通过遗赠全部赠予悉心照料她的小姨。她与父母关系疏远，办理流程合规并增设资产隔离条款。该遗赠合法，但她仍需赡养父母，近年青年高净值人群立遗赠案例持续增多。
+
+**来源：** [https://jksrjhq\.com/video\-play/yuan\-yu\-feng\-yun\-105799\-default\-1](<https://jksrjhq.com/video-play/yuan-yu-feng-yun-105799-default-1>)
+
+---
+
+## 67. 菲律宾被整破防了
+
+7月10日至11日，中国学者提出巴丹群岛主权主张并发布41页报告驳斥菲律宾南海主张的法理依据，菲律宾被整破防了，菲律宾国防部长特奥多罗指责中方“意图控制太平洋”。
+
+**来源：** [https://jksrjhq\.com/video\-play/yuan\-zui\-106405\-default\-1](<https://jksrjhq.com/video-play/yuan-zui-106405-default-1>)
+
+---
+
+## 68. 男子被困房顶 好友划泡沫板相救
+
+男子被困房顶 好友划泡沫板相救
+
+**来源：** [https://jksrjhq\.com/video\-play/yun\-shi\-fu\-qi\-pin\-che\-104765\-default\-1](<https://jksrjhq.com/video-play/yun-shi-fu-qi-pin-che-104765-default-1>)
+
+---
+
+## 69. 西班牙2\-1绝杀比利时
+
+北京时间11日，2026美加墨世界杯1/4决赛，西班牙2\-1战胜比利时，成为本届世界杯第二支四强球队。半决赛，他们将对阵法国队。
+
+**来源：** [https://jksrjhq\.com/video\-play/yun\-shi\-fu\-qi\-pin\-che\-104765\-youzhi\-1](<https://jksrjhq.com/video-play/yun-shi-fu-qi-pin-che-104765-youzhi-1>)
+
+---
+
+## 70. 雷军让卖车的和卖房的都沉默了
+
+7月10日，雷军官宣小米全新SUV系列“澎程”，车内布局的“户型图”让卖车的和卖房的都沉默了！网友：第一次在车上看到户型图。
+
+**来源：** [https://jksrjhq\.com/video\-play/zai\-ci\-194886\-douban\-1](<https://jksrjhq.com/video-play/zai-ci-194886-douban-1>)
+
+---
+
+## 71. 世界杯期间京东即时零售冰品爆火
+
+2026年美加墨世界杯赛程过半，带火即时零售消费。京东秒送平台上的冰啤酒、果切、运动服饰等多品类销售迎来爆发式增长。数据显示，世界杯期间，京东秒送冰啤酒销量同比增长超98%，冰淇淋同比增长59%，冰果切同比增长111%。
+
+**来源：** [https://jksrjhq\.com/video\-play/zai\-yi\-ci\-qing\-jiao\-huan\-qi\-zi\-102795\-default\-1](<https://jksrjhq.com/video-play/zai-yi-ci-qing-jiao-huan-qi-zi-102795-default-1>)
+
+---
+
+## 72. 一觉醒来巴威又睁眼了
+
+今年第九号台风“巴威”11日零时再度增强为强台风级，11日6点，“巴威”的中心位于距离浙闽交界东偏南方向约540公里，中心最大风力有14级。预计，“巴威”将以每小时30至35公里的速度向西北方向快速移动，强度变化不大。
+
+**来源：** [https://jksrjhq\.com/video\-play/zai\-yun\-duan\-shang\-de\-qing\-yu\-yu\-102512\-youzhi\-1](<https://jksrjhq.com/video-play/zai-yun-duan-shang-de-qing-yu-yu-102512-youzhi-1>)
+
+---
+
+## 73. 周星驰官宣新一代星女郎雪野
+
+7月11日，周星驰通过经纪人陈震宇正式官宣新人演员雪野为新一代“星女郎”，她在同日上映的电影《功夫女足》中饰演同名角色，这是继林允之后时隔八年周星驰再度力捧的新人。
+
+**来源：** [https://jksrjhq\.com/video\-play/zai\-yun\-duan\-shang\-de\-qing\-yu\-yu\-102512\-youzhi\-2](<https://jksrjhq.com/video-play/zai-yun-duan-shang-de-qing-yu-yu-102512-youzhi-2>)
+
+---
+
+## 74. “我也是第一次用无人机运人”
+
+受台风“美莎克”残余环流持续影响，连日来，广西多地遭遇严重洪涝灾害，洪水围困村庄、道路中断、通信失联。一批科技装备冲上一线，搭起了一条条“生命线”，被网友称为“科技最好的样子”。32岁的陈思毅，就是带着科技装备冲到救援一线的一员，这次救援行动，也是他第一次用无人机运人。
+
+**来源：** [https://jksrjhq\.com/video\-play/zhang\-fa\-gu\-niang\-106232\-default\-1](<https://jksrjhq.com/video-play/zhang-fa-gu-niang-106232-default-1>)
+
+---
+
+## 75. 孕妇欲跳站台轻生 值班员一把拉回
+
+近日，列车进站前，一名孕妇欲跳下站台轻生，值班员发现异常后重点盯控，危急时刻将其一把拉回护在身下。
+
+**来源：** [https://jksrjhq\.com/video\-play/zhang\-fa\-gu\-niang\-106232\-youzhi\-1](<https://jksrjhq.com/video-play/zhang-fa-gu-niang-106232-youzhi-1>)
+
+---
+
+## 76. 中餐馆老板：哈兰德像小太阳少有低落
+
+近日，来自哈兰德家乡挪威布吕讷小镇的中餐馆老板王惠珠表示：哈兰德像小太阳，少有低落，也不会发脾气。
+
+**来源：** [https://jksrjhq\.com/video\-play/zhang\-fu\-de\-peng\-you\-men\-102166\-default\-1](<https://jksrjhq.com/video-play/zhang-fu-de-peng-you-men-102166-default-1>)
+
+---
+
+## 77. 霉霉婚后首现身
+
+北京时间7月11日，霉霉Taylor Swift和老公Travis Kelce在婚礼后首现身，两人牵手参加好友婚礼。霉霉一身粉色印花抹胸裙，草莓熊全黑西装，期间耳语交流，甜蜜恩爱。
+
+**来源：** [https://jksrjhq\.com/video\-play/zhen\-guan\-sheng\-shi\-181854\-default\-1](<https://jksrjhq.com/video-play/zhen-guan-sheng-shi-181854-default-1>)
+
+---
+
+## 78. 多库6000万身价隐身
+
+7月11日，世界杯四分之一决赛，比利时1\-2不敌西班牙出局。比赛中效力于曼城的多库首发出战打满全场，但未能有所建树，目送球队出局。24岁的多库首次代表比利时参加世界杯，出战了全部的6场比赛，共计329分钟，但贡献0球0助攻。身价6000万欧的他并未拿出在俱乐部时的进攻效率，几乎整届世界杯都在隐身。
+
+**来源：** [https://jksrjhq\.com/video\-play/zhen\-ni\-de\-hun\-li\-4306\-default\-1](<https://jksrjhq.com/video-play/zhen-ni-de-hun-li-4306-default-1>)
+
+---
+
+## 79. 中国为“黄金气体”设闸
+
+7月10日，商务部、海关总署发布公告2026年第29号，依据《中华人民共和国对外贸易法》相关规定，决定对氦气实施临时禁止出口管理。氦气被誉为“黄金气体”，是极度稀缺的战略性资源。临时禁止出口管理，是保障氦气资源安全、引导氦气规范流通，进而推动我国氦气及相关行业高质量发展的重要举措，有利于维护全球气体供应链稳定。
+
+**来源：** [https://jksrjhq\.com/video\-play/zheng\-wu\-zhi\-xing\-105957\-douban\-1](<https://jksrjhq.com/video-play/zheng-wu-zhi-xing-105957-douban-1>)
+
+---
+
+## 80. 姆巴佩亚马尔从俱乐部对抗到世界杯
+
+北京时间7月15日03:00，世界杯半决赛法国VS西班牙，姆巴佩和亚马尔从俱乐部对抗到世界杯，强强对决谁能晋级引发热议。
+
+**来源：** [https://jksrjhq\.com/video\-play/zhi\-ming\-wan\-dao\-zhong\-ji\-shen\-pan\-106078\-douban\-1](<https://jksrjhq.com/video-play/zhi-ming-wan-dao-zhong-ji-shen-pan-106078-douban-1>)
+
+---
+
+## 81. 上次发布暴雨红色预警是两年前
+
+今年第9号台风“巴威”来袭，11日开始，风雨将进入最强影响时段。中央气象台7月11日10时升级发布暴雨红色预警。红色预警是最高级别的暴雨预警，上一次中央气象台发布暴雨红色预警，还是两年前的2024年6月29日至30日。
+
+**来源：** [https://jksrjhq\.com/video\-play/zhong\-an\-jie\-mi\-203751\-douban\-1](<https://jksrjhq.com/video-play/zhong-an-jie-mi-203751-douban-1>)
+
+---
+
+## 82. 维尼修斯公开道歉
+
+对于巴西队无缘2026美加墨世界杯八强，巴西队球星维尼修斯当地时间10日在社交平台上发帖道歉。“挫败感很强。”维尼修斯当天在帖子中称，“我们拥有一支实力足以取得更好成绩的队伍，但我们未能如愿。我为此道歉，我将为我们重返世界之巅的梦想而战。”
+
+**来源：** [https://jksrjhq\.com/video\-play/zhong\-fan\-meng\-gui\-wu\-193186\-default\-1](<https://jksrjhq.com/video-play/zhong-fan-meng-gui-wu-193186-default-1>)
+
+---
+
+## 83. 三星堆有最新发现
+
+四川省文物考古研究院10日公布三星堆青铜器最新研究成果，专家们通过对青铜顶尊跪坐人像的深入研究发现，这件器物并非抽象的神话符号，而是真实祭祀仪典的生动再现，反映出数千年前古蜀先民对神灵的崇拜。
+
+**来源：** [https://jksrjhq\.com/video\-play/zhong\-fan\-meng\-gui\-wu\-193186\-douban\-1](<https://jksrjhq.com/video-play/zhong-fan-meng-gui-wu-193186-douban-1>)
+
+---
+
+## 84. 时隔两年再发暴雨“红警” 意味什么
+
+中央气象台11日升级发布最高级别的暴雨红色预警，这是今年首个，也是时隔两年再度出现的暴雨“红警”。当暴雨红色预警发布时，说明一天降雨的工作量在3小时之内就完成了，可见雨势之急、雨量之大，疾风骤雨说的就是这个情况。
+
+**来源：** [https://jksrjhq\.com/video\-play/zhong\-gui\-105998\-youzhi\-1](<https://jksrjhq.com/video-play/zhong-gui-105998-youzhi-1>)
+
+---
+
+## 85. 南昌通报“业委会副主任卷走161万”
+
+7月11日，南昌通报“小区业委会副主任卷走161万失联”：小区业委会已向公安机关报案，公安机关已正式立案侦查。
+
+**来源：** [https://jksrjhq\.com/video\-play/zhong\-sheng\-xiang\-200334\-douban\-1](<https://jksrjhq.com/video-play/zhong-sheng-xiang-200334-douban-1>)
+
+---
+
+## 86. 习近平同金正恩互致贺电
+
+习近平同朝鲜劳动党总书记、国务委员会委员长金正恩就《中朝友好合作互助条约》签订65周年互致贺电。
+
+**来源：** [https://jksrjhq\.com/video\-play/zhu\-ju\-202890\-default\-1](<https://jksrjhq.com/video-play/zhu-ju-202890-default-1>)
+
+---
+
+## 87. 台风巴威登陆地点有变
+
+最新预计台风“巴威”将于7月11日半夜前后在浙江省苍南至三门一带登陆，登陆地点有变。此前预报称“巴威”将于12日凌晨在浙江台州至福建福鼎一带沿海登陆。
+
+**来源：** [https://jksrjhq\.com/video\-play/zi\-mei\-qing\-se\-106250\-youzhi\-1](<https://jksrjhq.com/video-play/zi-mei-qing-se-106250-youzhi-1>)
+
+---
+
+## 88. 浙江海边已掀起10多米巨浪
+
+7月10日，受今年第9号强台风“巴威”外围环流影响，台州温岭石塘金沙滩海域风浪骤增，狂风裹挟潮水掀起十余米巨浪，浪墙接连猛烈撞击礁石与海岸堤坝，白色浪花漫天飞溅，场面惊心动魄。
+
+**来源：** [https://jksrjhq\.com/video\-play/zong\-cai\-de\-ji\-shi\-ti\-shen\-7030\-default\-1](<https://jksrjhq.com/video-play/zong-cai-de-ji-shi-ti-shen-7030-default-1>)
+
+---
+
+## 89. 如何“顶格”应对台风巴威
+
+近日，台风“巴威”进入24小时警戒，如何“顶格”应对？山区的隐患不仅仅是地灾，还有洪水和山洪，各部门、各区需严格地按照预案落实防范措施。根据雨情、水情的变化进行动态研判，必要的时候对风险区在现有的人员转移基础上进行扩面转移，要规避风险，确保应转尽转、不落一户。
+
+**来源：** [https://jksrjhq\.com/video\-play/zui\-an\-xian\-chang\-shi\-lu\-166880\-douban\-1](<https://jksrjhq.com/video-play/zui-an-xian-chang-shi-lu-166880-douban-1>)
+
+---
+
+## 90. 温州商铺老板为挡台风砌了一堵墙
+
+温州商铺老板为挡台风砌了一堵墙
+
+**来源：** [https://jksrjhq\.com/video\-play/zui\-mei\-shi\-guang\-yu\-jian\-ni\-8509\-default\-1](<https://jksrjhq.com/video-play/zui-mei-shi-guang-yu-jian-ni-8509-default-1>)
+
+---
+
+## 91. 周星驰电影《功夫女足》票房破亿
+
+数据显示，截至7月11日11时32分，影片《功夫女足》票房突破1亿。
+
+**来源：** [https://jksrjhq\.com/video\-play/zui\-mei\-shi\-guang\-yu\-jian\-ni\-8509\-douban\-1](<https://jksrjhq.com/video-play/zui-mei-shi-guang-yu-jian-ni-8509-douban-1>)
+
+---
+
+## 92. 为什么不能用炸弹摧毁台风
+
+为什么不能用炸弹摧毁台风？主要有三个方面的原因：一、能量与体量差距悬殊；二、爆炸破坏无法持续；三、爆炸反为台风“充能”。
+
+**来源：** [https://jksrjhq\.com/video\-type/dian\-shi\-ju](<https://jksrjhq.com/video-type/dian-shi-ju>)
+
+---
+
+## 93. 瓜农2200斤西瓜收瓜贩仅出价20元
+
+近日，河南西瓜滞销，瓜农大姨含泪发声：收瓜贩想用20元买走2200斤西瓜！希望夏天甜的不只是瓜，还有瓜农的日子。
+
+**来源：** [https://jksrjhq\.com/video\-type/dian\-ying](<https://jksrjhq.com/video-type/dian-ying>)
+
+---
+
+## 94. 台风巴威最新动态
+
+台风“巴威”逼近我国东部沿海，记者抵达台风影响核心区，为您带来第一手现场实况。
+
+**来源：** [https://jksrjhq\.com/video\-type/dong\-man](<https://jksrjhq.com/video-type/dong-man>)
+
+---
+
+## 95. “龙蟒组合”时隔5年合体
+
+2026全锦赛双打名单正式出炉！马龙许昕的龙蟒组合，时隔五年再度合体征战男双。
+
+**来源：** [https://jksrjhq\.com/video\-type/duan\-ju\-da\-quan](<https://jksrjhq.com/video-type/duan-ju-da-quan>)
+
+---
+
+## 96. 最高级别！今年首个暴雨红色预警发布
+
+7月11日10时，中央气象台发布暴雨红色预警：多地有暴雨，部分地区有大暴雨，局地特大暴雨。同时部分地区伴有短时强降水，局地有雷暴大风或冰雹等强对流天气。
+
+**来源：** [https://jksrjhq\.com/video\-type/lun\-li\-pian](<https://jksrjhq.com/video-type/lun-li-pian>)
+
+---
+
+## 97. 杭州暴雨大量车辆被淹系谣言
+
+7月5日，建德公安接到群众报警，反映有人在网络平台发布建德暴雨洪水虚假视频，不实信息快速传播，引发不良社会影响。接报后，警方立即开展核查，迅速锁定违法嫌疑人。经查，违法行为人廖某某为博取网络流量、吸引大众关注，动歪心思炮制虚假灾情内容。目前，公安机关已依法对廖某某作出行政拘留七日的行政处罚。
+
+**来源：** [https://jksrjhq\.com/videotype\-all/all\-all\-all\-tuijian/all\-page1](<https://jksrjhq.com/videotype-all/all-all-all-tuijian/all-page1>)
+
+---
+
+## 98. 新娘结婚睡过头醒来看见满屋人
+
+7月11日，山东枣庄新娘代女士婚礼前一日因疲惫睡至近11点，醒来发现满屋亲友才记起婚期，按当地两天婚礼习俗未影响流程。
+
+**来源：** [https://jksrjhq\.com/videotype\-all/all\-all\-zhong\-guo\-xiang\-gang\-tuijian/all\-page1](<https://jksrjhq.com/videotype-all/all-all-zhong-guo-xiang-gang-tuijian/all-page1>)
+
+---
+
+## 99. 浙江一厂区连夜给罗汉松穿金钟罩
+
+14级强台风“巴威”逼近，台州临海深夜拉响防灾警报！温岭一厂区连夜电焊，给罗汉松穿上“金钟罩”。
+
+**来源：** [https://jksrjhq\.com/videotype\-dian\-shi\-ju/ri\-ju\-1941\-all\-all/all\-page1](<https://jksrjhq.com/videotype-dian-shi-ju/ri-ju-1941-all-all/all-page1>)
+
+---
+
+## 100. 救援人员10秒钟吃完半桶泡面
+
+7月9日，广西贵港抗洪救援中，救援人员从清晨5点连续奋战至下午2点，安全转移6000余名师生后，仅用10秒狼吞虎咽吃完半桶泡面充饥，随即奔赴下一救援现场。
+
+**来源：** [https://jksrjhq\.com/videotype\-dian\-shi\-ju/ri\-ju\-2004\-all\-all/all\-page1](<https://jksrjhq.com/videotype-dian-shi-ju/ri-ju-2004-all-all/all-page1>)
+
+---
+
+## 101. 宇树机器人给猪做手术登上Nature
+
+近日，国际顶刊Nature发表了一篇题为《人形机器人用于外科手术的活体可行性研究》的论文。研究团队选用了高校实验室常用的宇树科技G1人形机器人，让它手持腹腔镜器械，通过遥操的方式为两头活猪完成了腹腔镜胆囊切除术。
+
+**来源：** [https://jksrjhq\.com/videotype\-dian\-shi\-ju/ri\-ju\-all\-all\-all/a\-la\-page1](<https://jksrjhq.com/videotype-dian-shi-ju/ri-ju-all-all-all/a-la-page1>)
+
+---
+
+## 102. 男子把充话费当暗示 夜闯女邻居家
+
+福建男子李某因帮助同一小区的女租户张某充话费，误认为张某对他有性暗示，于是凌晨闯入张某家中，意图与张某发生性关系。近日，福建省武夷山市人民法院公布了该案判决书，法院判决李某犯非法侵入住宅罪，判处有期徒刑一年六个月。
+
+**来源：** [https://jksrjhq\.com/videotype\-dian\-shi\-ju/ri\-ju\-all\-all\-all/min\-nan\-yu\-page1](<https://jksrjhq.com/videotype-dian-shi-ju/ri-ju-all-all-all/min-nan-yu-page1>)
+
+---
+
+## 103. 哈兰德晒日光浴被拍 反手回拍球迷
+
+2026年美加墨世界杯1/4决赛，英格兰即将对阵挪威。哈兰德酒店晒日光浴，被球迷远距离拍摄，哈兰德不语直接一个反拍。
+
+**来源：** [https://jksrjhq\.com/videotype\-dian\-shi\-ju/ri\-ju\-all\-all\-all/rui\-dian\-yu\-page1](<https://jksrjhq.com/videotype-dian-shi-ju/ri-ju-all-all-all/rui-dian-yu-page1>)
+
+---
+
+## 104. 欧盟拿“北京鸭”开刀是有多不自信
+
+当地时间7月9日，欧盟委员会正式对来自中国的“北京鸭”发起反倾销调查。欧盟这种将常规贸易问题无限上纲上线、试图构建无死角贸易防御网的做法，非但无法修补其产业短板，反而在自我设限中暴露了其深层的不自信。
+
+**来源：** [https://jksrjhq\.com/videotype\-dian\-shi\-ju/ri\-ju\-all\-all\-all/wu\-er\-dou\-yu\-page1](<https://jksrjhq.com/videotype-dian-shi-ju/ri-ju-all-all-all/wu-er-dou-yu-page1>)
+
+---
+
+## 105. 《功夫女足》上映 AI预测总票房超10亿
+
+7月11日，周星驰最新喜剧电影《功夫女足》正式上映。截至7月11日10时9分，影片《功夫女足》票房突破9000万。全天预测票房1\.95亿，AI预测总票房10\.15亿。
+
+**来源：** [https://jksrjhq\.com/videotype\-dian\-shi\-ju/ri\-ju\-all\-all\-all/ying\-yu\-shou\-yu\-page1](<https://jksrjhq.com/videotype-dian-shi-ju/ri-ju-all-all-all/ying-yu-shou-yu-page1>)
+
+---
+
+## 106. 迪丽热巴拍摄全程素颜 拒用替身
+
+7月10日，随着周星驰导演新作《功夫女足》首支长预告的发布，迪丽热巴在片场花絮中的剖白迅速引发热议。她在片中饰演峨眉队8号主力前锋“钰珑”，一个性格果敢刚强、胜负欲极强的球队进攻核心。为了贴合角色她全程素颜并且拒用替身。
+
+**来源：** [https://jksrjhq\.com/videotype\-dian\-shi\-ju/ri\-ju\-all\-fei\-lv\-bin\-all/rui\-dian\-yu\-page1](<https://jksrjhq.com/videotype-dian-shi-ju/ri-ju-all-fei-lv-bin-all/rui-dian-yu-page1>)
+
+---
+
+## 107. 冉莹颖自曝曾多次想离婚
+
+7月6日，拳王邹市明妻子冉莹颖在《姐姐当家2》看片会上自曝曾多次想离婚，甚至三次前往民政局。她表示参加节目最初是为救赎婚姻，但最终发现救赎的是自己。
+
+**来源：** [https://jksrjhq\.com/videotype\-dian\-shi\-ju/ri\-ju\-all\-han\-guo\-all/rui\-dian\-yu\-page1](<https://jksrjhq.com/videotype-dian-shi-ju/ri-ju-all-han-guo-all/rui-dian-yu-page1>)
+
+---
+
+## 108. 老祖宗留下的东西我们反倒不能用吗
+
+近期，LV诉茉莉奶白商标侵权案一审宣判，茉莉奶白被判赔1030万元。由于LV的“老花”与中国柿蒂纹、宝相花同源，这一判决引发广泛讨论。中国传统纹样作为公共文化资源，是全社会共享的文化财富。企业将公共文化资源进行创造性改造、转化为注册商标，是法律所允许的正当权利。但这种转化，并不能对公共文化资源先占独享。
+
+**来源：** [https://jksrjhq\.com/videotype\-dian\-shi\-ju/ri\-ju\-all\-he\-lan\-all/rui\-dian\-yu\-page1](<https://jksrjhq.com/videotype-dian-shi-ju/ri-ju-all-he-lan-all/rui-dian-yu-page1>)
+
+---
+
+## 109. 香港生殖中心9个胚胎样本错8个
+
+近日，香港希愈生殖医学中心被曝发生人工受孕胚胎活检样本严重错配事故，9个样本错8个。目前，香港监管部门已将希愈原有的17项合法生殖医疗服务大幅缩减，仅保留配子、胚胎储存3项基础服务，其余14项治疗服务全部暂停。鉴于事件极可能涉及人为操作及刑事成分，香港警方重案组已全面介入彻查。
+
+**来源：** [https://jksrjhq\.com/videotype\-dian\-shi\-ju/ri\-ju\-all\-jian\-pu\-zhai\-all/min\-nan\-yu\-page1](<https://jksrjhq.com/videotype-dian-shi-ju/ri-ju-all-jian-pu-zhai-all/min-nan-yu-page1>)
+
+---
+
+## 110. 中国无人机“违例”操作 全网破防
+
+连日来，广西多地出现洪涝灾害。洪灾中，救援人员用无人机调运物资、转移群众。原则上，无人机不许吊人，但人民大于原则。中国无人机这波“违例”操作，全网破防！
+
+**来源：** [https://jksrjhq\.com/videotype\-dian\-shi\-ju/ri\-ju\-all\-lu\-sen\-bao\-all/rui\-dian\-yu\-page1](<https://jksrjhq.com/videotype-dian-shi-ju/ri-ju-all-lu-sen-bao-all/rui-dian-yu-page1>)
+
+---
+
+## 111. 霍思燕：鹦鹉不是我的
+
+近日，一张霍思燕身穿旗袍、与一只蓝金刚鹦鹉的合影在网络上疯狂流传。照片里人与鹦鹉气质都相当“霸气”，加上她家爱犬“霍蜜蜡”刚在意大利世界杯犬展夺冠，网友们调侃霍思燕是“御兽宗宗主”，还编出了“鹦鹉也夺冠”的故事。霍思燕辟谣：鹦鹉不是我的，是在泰国宠物展上碰到蹭拍留念。
+
+**来源：** [https://jksrjhq\.com/videotype\-dian\-shi\-ju/ri\-ju\-all\-lu\-sen\-bao\-all/yin\-du\-yu\-page1](<https://jksrjhq.com/videotype-dian-shi-ju/ri-ju-all-lu-sen-bao-all/yin-du-yu-page1>)
+
+---
+
+## 112. 女儿女婿自杀后妈妈投身防性侵宣传
+
+广东女子黄汶雯幼年遭亲属性侵导致长期心理创伤，2022年，黄汶雯和母亲吴梅坦白，但吴梅没有选择报警。2024年，黄汶雯在亲密关系中出现应激反应，在丈夫谢家振支持下报警，因无法证实犯罪事实发生，深圳警方作出不予立案决定，黄汶雯及丈夫因此相继自杀。近年来，其母吴梅投身防性侵宣传，通过课程学习、社区宣讲警示家长。
+
+**来源：** [https://jksrjhq\.com/videotype\-dian\-shi\-ju/ri\-ju\-all\-ma\-er\-ta\-all/rui\-dian\-yu\-page1](<https://jksrjhq.com/videotype-dian-shi-ju/ri-ju-all-ma-er-ta-all/rui-dian-yu-page1>)
+
+---
+
+## 113. 交警巡逻时发现驾驶员持“枪”
+
+近日，交警巡逻时，发现一车上驾驶员持“枪”。经拦截检查，该物品实为电动枪形玩具，但若装填铅弹则会具备杀伤力，枪形物随即被移交派出所处理。
+
+**来源：** [https://jksrjhq\.com/videotype\-dian\-shi\-ju/ri\-ju\-all\-qi\-ta\-all/rui\-dian\-yu\-page1](<https://jksrjhq.com/videotype-dian-shi-ju/ri-ju-all-qi-ta-all/rui-dian-yu-page1>)
+
+---
+
+## 114. 巴威加速直奔浙闽 最强风雨时段来了
+
+从11日凌晨开始，“巴威”明显提速，以每小时30\-35公里的速度向西北方向快速移动，直奔浙闽沿海。今天开始，我们将迎来“巴威”风雨影响最强时段。
+
+**来源：** [https://jksrjhq\.com/videotype\-dian\-ying/all\-all\-all\-all/all\-page1](<https://jksrjhq.com/videotype-dian-ying/all-all-all-all/all-page1>)
+
+---
+
+## 115. 现在说巴威直奔山东有点早
+
+7月11日，巴威直奔山东引发热议。中国天气网发文：能理解大家对台风“巴威”的关注，但说直奔山东是不是早了点，对山东的强降雨影响主要在13日前后。现在的“巴威”距离浙闽沿海都还有400多公里，要先直奔浙江、福建，登陆后深入内陆的路径还有变数，可能往江西或安徽或河南或江苏走，之后再考虑山东。
+
+**来源：** [https://jksrjhq\.com/videotype\-dian\-ying/dong\-zuo\-pian\-all\-all\-all/all\-page1](<https://jksrjhq.com/videotype-dian-ying/dong-zuo-pian-all-all-all/all-page1>)
+
+---
+
+## 116. 外出小于1小时不建议关空调
+
+近日，多地高温，大热天里，空调成了不少家庭的消暑“刚需”。外出少于1小时建议不要关空调：空调重启一次耗的电，相当于连续开二三十分钟，外出时将温度调高1\-2°C即可。
+
+**来源：** [https://jksrjhq\.com/videotype\-dian\-ying/lun\-li\-pian\-all\-all\-all/all\-page1](<https://jksrjhq.com/videotype-dian-ying/lun-li-pian-all-all-all/all-page1>)
+
+---
+
+## 117. 35岁女高管立遗嘱将千万资产赠小姨
+
+沈阳一名35岁未婚女高管，将千万个人资产通过遗赠全部赠予悉心照料她的小姨。她与父母关系疏远，办理流程合规并增设资产隔离条款。该遗赠合法，但她仍需赡养父母，近年青年高净值人群立遗赠案例持续增多。
+
+**来源：** [https://jksrjhq\.com/videotype\-dian\-ying/lun\-li\-pian\-all\-all\-all/all\-page105](<https://jksrjhq.com/videotype-dian-ying/lun-li-pian-all-all-all/all-page105>)
+
+---
+
+## 118. 菲律宾被整破防了
+
+7月10日至11日，中国学者提出巴丹群岛主权主张并发布41页报告驳斥菲律宾南海主张的法理依据，菲律宾被整破防了，菲律宾国防部长特奥多罗指责中方“意图控制太平洋”。
+
+**来源：** [https://jksrjhq\.com/videotype\-dian\-ying/lun\-li\-pian\-all\-all\-all/all\-page11](<https://jksrjhq.com/videotype-dian-ying/lun-li-pian-all-all-all/all-page11>)
+
+---
+
+## 119. 男子被困房顶 好友划泡沫板相救
+
+男子被困房顶 好友划泡沫板相救
+
+**来源：** [https://jksrjhq\.com/videotype\-dian\-ying/lun\-li\-pian\-all\-all\-all/all\-page112](<https://jksrjhq.com/videotype-dian-ying/lun-li-pian-all-all-all/all-page112>)
+
+---
+
+## 120. 西班牙2\-1绝杀比利时
+
+北京时间11日，2026美加墨世界杯1/4决赛，西班牙2\-1战胜比利时，成为本届世界杯第二支四强球队。半决赛，他们将对阵法国队。
+
+**来源：** [https://jksrjhq\.com/videotype\-dian\-ying/lun\-li\-pian\-all\-all\-all/all\-page117](<https://jksrjhq.com/videotype-dian-ying/lun-li-pian-all-all-all/all-page117>)
+
+---
+
+## 121. 雷军让卖车的和卖房的都沉默了
+
+7月10日，雷军官宣小米全新SUV系列“澎程”，车内布局的“户型图”让卖车的和卖房的都沉默了！网友：第一次在车上看到户型图。
+
+**来源：** [https://jksrjhq\.com/videotype\-dian\-ying/lun\-li\-pian\-all\-all\-all/all\-page12](<https://jksrjhq.com/videotype-dian-ying/lun-li-pian-all-all-all/all-page12>)
+
+---
+
+## 122. 世界杯期间京东即时零售冰品爆火
+
+2026年美加墨世界杯赛程过半，带火即时零售消费。京东秒送平台上的冰啤酒、果切、运动服饰等多品类销售迎来爆发式增长。数据显示，世界杯期间，京东秒送冰啤酒销量同比增长超98%，冰淇淋同比增长59%，冰果切同比增长111%。
+
+**来源：** [https://jksrjhq\.com/videotype\-dian\-ying/lun\-li\-pian\-all\-all\-all/all\-page124](<https://jksrjhq.com/videotype-dian-ying/lun-li-pian-all-all-all/all-page124>)
+
+---
+
+## 123. 一觉醒来巴威又睁眼了
+
+今年第九号台风“巴威”11日零时再度增强为强台风级，11日6点，“巴威”的中心位于距离浙闽交界东偏南方向约540公里，中心最大风力有14级。预计，“巴威”将以每小时30至35公里的速度向西北方向快速移动，强度变化不大。
+
+**来源：** [https://jksrjhq\.com/videotype\-dian\-ying/lun\-li\-pian\-all\-all\-all/all\-page127](<https://jksrjhq.com/videotype-dian-ying/lun-li-pian-all-all-all/all-page127>)
+
+---
+
+## 124. 周星驰官宣新一代星女郎雪野
+
+7月11日，周星驰通过经纪人陈震宇正式官宣新人演员雪野为新一代“星女郎”，她在同日上映的电影《功夫女足》中饰演同名角色，这是继林允之后时隔八年周星驰再度力捧的新人。
+
+**来源：** [https://jksrjhq\.com/videotype\-dian\-ying/lun\-li\-pian\-all\-all\-all/all\-page135](<https://jksrjhq.com/videotype-dian-ying/lun-li-pian-all-all-all/all-page135>)
+
+---
+
+## 125. “我也是第一次用无人机运人”
+
+受台风“美莎克”残余环流持续影响，连日来，广西多地遭遇严重洪涝灾害，洪水围困村庄、道路中断、通信失联。一批科技装备冲上一线，搭起了一条条“生命线”，被网友称为“科技最好的样子”。32岁的陈思毅，就是带着科技装备冲到救援一线的一员，这次救援行动，也是他第一次用无人机运人。
+
+**来源：** [https://jksrjhq\.com/videotype\-dian\-ying/lun\-li\-pian\-all\-all\-all/all\-page136](<https://jksrjhq.com/videotype-dian-ying/lun-li-pian-all-all-all/all-page136>)
+
+---
+
+## 126. 孕妇欲跳站台轻生 值班员一把拉回
+
+近日，列车进站前，一名孕妇欲跳下站台轻生，值班员发现异常后重点盯控，危急时刻将其一把拉回护在身下。
+
+**来源：** [https://jksrjhq\.com/videotype\-dian\-ying/lun\-li\-pian\-all\-all\-all/all\-page139](<https://jksrjhq.com/videotype-dian-ying/lun-li-pian-all-all-all/all-page139>)
+
+---
+
+## 127. 中餐馆老板：哈兰德像小太阳少有低落
+
+近日，来自哈兰德家乡挪威布吕讷小镇的中餐馆老板王惠珠表示：哈兰德像小太阳，少有低落，也不会发脾气。
+
+**来源：** [https://jksrjhq\.com/videotype\-dian\-ying/lun\-li\-pian\-all\-all\-all/all\-page142](<https://jksrjhq.com/videotype-dian-ying/lun-li-pian-all-all-all/all-page142>)
+
+---
+
+## 128. 霉霉婚后首现身
+
+北京时间7月11日，霉霉Taylor Swift和老公Travis Kelce在婚礼后首现身，两人牵手参加好友婚礼。霉霉一身粉色印花抹胸裙，草莓熊全黑西装，期间耳语交流，甜蜜恩爱。
+
+**来源：** [https://jksrjhq\.com/videotype\-dian\-ying/lun\-li\-pian\-all\-all\-all/all\-page143](<https://jksrjhq.com/videotype-dian-ying/lun-li-pian-all-all-all/all-page143>)
+
+---
+
+## 129. 多库6000万身价隐身
+
+7月11日，世界杯四分之一决赛，比利时1\-2不敌西班牙出局。比赛中效力于曼城的多库首发出战打满全场，但未能有所建树，目送球队出局。24岁的多库首次代表比利时参加世界杯，出战了全部的6场比赛，共计329分钟，但贡献0球0助攻。身价6000万欧的他并未拿出在俱乐部时的进攻效率，几乎整届世界杯都在隐身。
+
+**来源：** [https://jksrjhq\.com/videotype\-dian\-ying/lun\-li\-pian\-all\-all\-all/all\-page147](<https://jksrjhq.com/videotype-dian-ying/lun-li-pian-all-all-all/all-page147>)
+
+---
+
+## 130. 中国为“黄金气体”设闸
+
+7月10日，商务部、海关总署发布公告2026年第29号，依据《中华人民共和国对外贸易法》相关规定，决定对氦气实施临时禁止出口管理。氦气被誉为“黄金气体”，是极度稀缺的战略性资源。临时禁止出口管理，是保障氦气资源安全、引导氦气规范流通，进而推动我国氦气及相关行业高质量发展的重要举措，有利于维护全球气体供应链稳定。
+
+**来源：** [https://jksrjhq\.com/videotype\-dian\-ying/lun\-li\-pian\-all\-all\-all/all\-page18](<https://jksrjhq.com/videotype-dian-ying/lun-li-pian-all-all-all/all-page18>)
+
+---
+
+## 131. 姆巴佩亚马尔从俱乐部对抗到世界杯
+
+北京时间7月15日03:00，世界杯半决赛法国VS西班牙，姆巴佩和亚马尔从俱乐部对抗到世界杯，强强对决谁能晋级引发热议。
+
+**来源：** [https://jksrjhq\.com/videotype\-dian\-ying/lun\-li\-pian\-all\-all\-all/all\-page19](<https://jksrjhq.com/videotype-dian-ying/lun-li-pian-all-all-all/all-page19>)
+
+---
+
+## 132. 上次发布暴雨红色预警是两年前
+
+今年第9号台风“巴威”来袭，11日开始，风雨将进入最强影响时段。中央气象台7月11日10时升级发布暴雨红色预警。红色预警是最高级别的暴雨预警，上一次中央气象台发布暴雨红色预警，还是两年前的2024年6月29日至30日。
+
+**来源：** [https://jksrjhq\.com/videotype\-dian\-ying/lun\-li\-pian\-all\-all\-all/all\-page2](<https://jksrjhq.com/videotype-dian-ying/lun-li-pian-all-all-all/all-page2>)
+
+---
+
+## 133. 维尼修斯公开道歉
+
+对于巴西队无缘2026美加墨世界杯八强，巴西队球星维尼修斯当地时间10日在社交平台上发帖道歉。“挫败感很强。”维尼修斯当天在帖子中称，“我们拥有一支实力足以取得更好成绩的队伍，但我们未能如愿。我为此道歉，我将为我们重返世界之巅的梦想而战。”
+
+**来源：** [https://jksrjhq\.com/videotype\-dian\-ying/lun\-li\-pian\-all\-all\-all/all\-page20](<https://jksrjhq.com/videotype-dian-ying/lun-li-pian-all-all-all/all-page20>)
+
+---
+
+## 134. 三星堆有最新发现
+
+四川省文物考古研究院10日公布三星堆青铜器最新研究成果，专家们通过对青铜顶尊跪坐人像的深入研究发现，这件器物并非抽象的神话符号，而是真实祭祀仪典的生动再现，反映出数千年前古蜀先民对神灵的崇拜。
+
+**来源：** [https://jksrjhq\.com/videotype\-dian\-ying/lun\-li\-pian\-all\-all\-all/all\-page23](<https://jksrjhq.com/videotype-dian-ying/lun-li-pian-all-all-all/all-page23>)
+
+---
+
+## 135. 时隔两年再发暴雨“红警” 意味什么
+
+中央气象台11日升级发布最高级别的暴雨红色预警，这是今年首个，也是时隔两年再度出现的暴雨“红警”。当暴雨红色预警发布时，说明一天降雨的工作量在3小时之内就完成了，可见雨势之急、雨量之大，疾风骤雨说的就是这个情况。
+
+**来源：** [https://jksrjhq\.com/videotype\-dian\-ying/lun\-li\-pian\-all\-all\-all/all\-page3](<https://jksrjhq.com/videotype-dian-ying/lun-li-pian-all-all-all/all-page3>)
+
+---
+
+## 136. 南昌通报“业委会副主任卷走161万”
+
+7月11日，南昌通报“小区业委会副主任卷走161万失联”：小区业委会已向公安机关报案，公安机关已正式立案侦查。
+
+**来源：** [https://jksrjhq\.com/videotype\-dian\-ying/lun\-li\-pian\-all\-all\-all/all\-page30](<https://jksrjhq.com/videotype-dian-ying/lun-li-pian-all-all-all/all-page30>)
+
+---
+
+## 137. 习近平同金正恩互致贺电
+
+习近平同朝鲜劳动党总书记、国务委员会委员长金正恩就《中朝友好合作互助条约》签订65周年互致贺电。
+
+**来源：** [https://jksrjhq\.com/videotype\-dian\-ying/lun\-li\-pian\-all\-all\-all/all\-page31](<https://jksrjhq.com/videotype-dian-ying/lun-li-pian-all-all-all/all-page31>)
+
+---
+
+## 138. 台风巴威登陆地点有变
+
+最新预计台风“巴威”将于7月11日半夜前后在浙江省苍南至三门一带登陆，登陆地点有变。此前预报称“巴威”将于12日凌晨在浙江台州至福建福鼎一带沿海登陆。
+
+**来源：** [https://jksrjhq\.com/videotype\-dian\-ying/lun\-li\-pian\-all\-all\-all/all\-page32](<https://jksrjhq.com/videotype-dian-ying/lun-li-pian-all-all-all/all-page32>)
+
+---
+
+## 139. 浙江海边已掀起10多米巨浪
+
+7月10日，受今年第9号强台风“巴威”外围环流影响，台州温岭石塘金沙滩海域风浪骤增，狂风裹挟潮水掀起十余米巨浪，浪墙接连猛烈撞击礁石与海岸堤坝，白色浪花漫天飞溅，场面惊心动魄。
+
+**来源：** [https://jksrjhq\.com/videotype\-dian\-ying/lun\-li\-pian\-all\-all\-all/all\-page4](<https://jksrjhq.com/videotype-dian-ying/lun-li-pian-all-all-all/all-page4>)
+
+---
+
+## 140. 如何“顶格”应对台风巴威
+
+近日，台风“巴威”进入24小时警戒，如何“顶格”应对？山区的隐患不仅仅是地灾，还有洪水和山洪，各部门、各区需严格地按照预案落实防范措施。根据雨情、水情的变化进行动态研判，必要的时候对风险区在现有的人员转移基础上进行扩面转移，要规避风险，确保应转尽转、不落一户。
+
+**来源：** [https://jksrjhq\.com/videotype\-dian\-ying/lun\-li\-pian\-all\-all\-all/all\-page44](<https://jksrjhq.com/videotype-dian-ying/lun-li-pian-all-all-all/all-page44>)
+
+---
+
+## 141. 温州商铺老板为挡台风砌了一堵墙
+
+温州商铺老板为挡台风砌了一堵墙
+
+**来源：** [https://jksrjhq\.com/videotype\-dian\-ying/lun\-li\-pian\-all\-all\-all/all\-page5](<https://jksrjhq.com/videotype-dian-ying/lun-li-pian-all-all-all/all-page5>)
+
+---
+
+## 142. 周星驰电影《功夫女足》票房破亿
+
+数据显示，截至7月11日11时32分，影片《功夫女足》票房突破1亿。
+
+**来源：** [https://jksrjhq\.com/videotype\-dian\-ying/lun\-li\-pian\-all\-all\-all/all\-page6](<https://jksrjhq.com/videotype-dian-ying/lun-li-pian-all-all-all/all-page6>)
+
+---
+
+## 143. 为什么不能用炸弹摧毁台风
+
+为什么不能用炸弹摧毁台风？主要有三个方面的原因：一、能量与体量差距悬殊；二、爆炸破坏无法持续；三、爆炸反为台风“充能”。
+
+**来源：** [https://jksrjhq\.com/videotype\-dian\-ying/lun\-li\-pian\-all\-all\-all/all\-page7](<https://jksrjhq.com/videotype-dian-ying/lun-li-pian-all-all-all/all-page7>)
+
+---
+
+## 144. 瓜农2200斤西瓜收瓜贩仅出价20元
+
+近日，河南西瓜滞销，瓜农大姨含泪发声：收瓜贩想用20元买走2200斤西瓜！希望夏天甜的不只是瓜，还有瓜农的日子。
+
+**来源：** [https://jksrjhq\.com/videotype\-dian\-ying/lun\-li\-pian\-all\-all\-all/all\-page8](<https://jksrjhq.com/videotype-dian-ying/lun-li-pian-all-all-all/all-page8>)
+
+---
+
+## 145. 台风巴威最新动态
+
+台风“巴威”逼近我国东部沿海，记者抵达台风影响核心区，为您带来第一手现场实况。
+
+**来源：** [https://jksrjhq\.com/videotype\-dian\-ying/lun\-li\-pian\-all\-all\-all/all\-page81](<https://jksrjhq.com/videotype-dian-ying/lun-li-pian-all-all-all/all-page81>)
+
+---
+
+## 146. “龙蟒组合”时隔5年合体
+
+2026全锦赛双打名单正式出炉！马龙许昕的龙蟒组合，时隔五年再度合体征战男双。
+
+**来源：** [https://jksrjhq\.com/videotype\-dian\-ying/lun\-li\-pian\-all\-all\-all/all\-page9](<https://jksrjhq.com/videotype-dian-ying/lun-li-pian-all-all-all/all-page9>)
+
+---
+
+## 147. 最高级别！今年首个暴雨红色预警发布
+
+7月11日10时，中央气象台发布暴雨红色预警：多地有暴雨，部分地区有大暴雨，局地特大暴雨。同时部分地区伴有短时强降水，局地有雷暴大风或冰雹等强对流天气。
+
+**来源：** [https://jksrjhq\.com/videotype\-dian\-ying/lun\-li\-pian\-all\-all\-all/guo\-yu\-page3](<https://jksrjhq.com/videotype-dian-ying/lun-li-pian-all-all-all/guo-yu-page3>)
+
+---
+
+## 148. 杭州暴雨大量车辆被淹系谣言
+
+7月5日，建德公安接到群众报警，反映有人在网络平台发布建德暴雨洪水虚假视频，不实信息快速传播，引发不良社会影响。接报后，警方立即开展核查，迅速锁定违法嫌疑人。经查，违法行为人廖某某为博取网络流量、吸引大众关注，动歪心思炮制虚假灾情内容。目前，公安机关已依法对廖某某作出行政拘留七日的行政处罚。
+
+**来源：** [https://jksrjhq\.com/videotype\-dian\-ying/lun\-li\-pian\-all\-all\-all/han\-yu\-page2](<https://jksrjhq.com/videotype-dian-ying/lun-li-pian-all-all-all/han-yu-page2>)
+
+---
+
+## 149. 新娘结婚睡过头醒来看见满屋人
+
+7月11日，山东枣庄新娘代女士婚礼前一日因疲惫睡至近11点，醒来发现满屋亲友才记起婚期，按当地两天婚礼习俗未影响流程。
+
+**来源：** [https://jksrjhq\.com/videotype\-dian\-ying/lun\-li\-pian\-all\-all\-news/all\-page2](<https://jksrjhq.com/videotype-dian-ying/lun-li-pian-all-all-news/all-page2>)
+
+---
+
+## 150. 浙江一厂区连夜给罗汉松穿金钟罩
+
+14级强台风“巴威”逼近，台州临海深夜拉响防灾警报！温岭一厂区连夜电焊，给罗汉松穿上“金钟罩”。
+
+**来源：** [https://jksrjhq\.com/videotype\-dian\-ying/lun\-li\-pian\-all\-all\-news/all\-page3](<https://jksrjhq.com/videotype-dian-ying/lun-li-pian-all-all-news/all-page3>)
+
+---
+
+## 151. 救援人员10秒钟吃完半桶泡面
+
+7月9日，广西贵港抗洪救援中，救援人员从清晨5点连续奋战至下午2点，安全转移6000余名师生后，仅用10秒狼吞虎咽吃完半桶泡面充饥，随即奔赴下一救援现场。
+
+**来源：** [https://jksrjhq\.com/videotype\-dian\-ying/lun\-li\-pian\-all\-all\-news/all\-page5](<https://jksrjhq.com/videotype-dian-ying/lun-li-pian-all-all-news/all-page5>)
+
+---
+
+## 152. 宇树机器人给猪做手术登上Nature
+
+近日，国际顶刊Nature发表了一篇题为《人形机器人用于外科手术的活体可行性研究》的论文。研究团队选用了高校实验室常用的宇树科技G1人形机器人，让它手持腹腔镜器械，通过遥操的方式为两头活猪完成了腹腔镜胆囊切除术。
+
+**来源：** [https://jksrjhq\.com/videotype\-dian\-ying/lun\-li\-pian\-all\-all\-update/all\-page11](<https://jksrjhq.com/videotype-dian-ying/lun-li-pian-all-all-update/all-page11>)
+
+---
+
+## 153. 男子把充话费当暗示 夜闯女邻居家
+
+福建男子李某因帮助同一小区的女租户张某充话费，误认为张某对他有性暗示，于是凌晨闯入张某家中，意图与张某发生性关系。近日，福建省武夷山市人民法院公布了该案判决书，法院判决李某犯非法侵入住宅罪，判处有期徒刑一年六个月。
+
+**来源：** [https://jksrjhq\.com/videotype\-dian\-ying/lun\-li\-pian\-all\-all\-update/all\-page12](<https://jksrjhq.com/videotype-dian-ying/lun-li-pian-all-all-update/all-page12>)
+
+---
+
+## 154. 哈兰德晒日光浴被拍 反手回拍球迷
+
+2026年美加墨世界杯1/4决赛，英格兰即将对阵挪威。哈兰德酒店晒日光浴，被球迷远距离拍摄，哈兰德不语直接一个反拍。
+
+**来源：** [https://jksrjhq\.com/videotype\-dian\-ying/lun\-li\-pian\-all\-all\-update/all\-page6](<https://jksrjhq.com/videotype-dian-ying/lun-li-pian-all-all-update/all-page6>)
+
+---
+
+## 155. 欧盟拿“北京鸭”开刀是有多不自信
+
+当地时间7月9日，欧盟委员会正式对来自中国的“北京鸭”发起反倾销调查。欧盟这种将常规贸易问题无限上纲上线、试图构建无死角贸易防御网的做法，非但无法修补其产业短板，反而在自我设限中暴露了其深层的不自信。
+
+**来源：** [https://jksrjhq\.com/videotype\-dian\-ying/lun\-li\-pian\-all\-fa\-guo\-all/all\-page1](<https://jksrjhq.com/videotype-dian-ying/lun-li-pian-all-fa-guo-all/all-page1>)
+
+---
+
+## 156. 《功夫女足》上映 AI预测总票房超10亿
+
+7月11日，周星驰最新喜剧电影《功夫女足》正式上映。截至7月11日10时9分，影片《功夫女足》票房突破9000万。全天预测票房1\.95亿，AI预测总票房10\.15亿。
+
+**来源：** [https://jksrjhq\.com/videotype\-dian\-ying/lun\-li\-pian\-all\-mei\-guo\-all/all\-page1](<https://jksrjhq.com/videotype-dian-ying/lun-li-pian-all-mei-guo-all/all-page1>)
+
+---
+
+## 157. 迪丽热巴拍摄全程素颜 拒用替身
+
+7月10日，随着周星驰导演新作《功夫女足》首支长预告的发布，迪丽热巴在片场花絮中的剖白迅速引发热议。她在片中饰演峨眉队8号主力前锋“钰珑”，一个性格果敢刚强、胜负欲极强的球队进攻核心。为了贴合角色她全程素颜并且拒用替身。
+
+**来源：** [https://jksrjhq\.com/videotype\-dian\-ying/lun\-li\-pian\-all\-mei\-guo\-all/all\-page141](<https://jksrjhq.com/videotype-dian-ying/lun-li-pian-all-mei-guo-all/all-page141>)
+
+---
+
+## 158. 冉莹颖自曝曾多次想离婚
+
+7月6日，拳王邹市明妻子冉莹颖在《姐姐当家2》看片会上自曝曾多次想离婚，甚至三次前往民政局。她表示参加节目最初是为救赎婚姻，但最终发现救赎的是自己。
+
+**来源：** [https://jksrjhq\.com/videotype\-dian\-ying/lun\-li\-pian\-all\-xi\-ban\-ya\-news/all\-page17](<https://jksrjhq.com/videotype-dian-ying/lun-li-pian-all-xi-ban-ya-news/all-page17>)
+
+---
+
+## 159. 老祖宗留下的东西我们反倒不能用吗
+
+近期，LV诉茉莉奶白商标侵权案一审宣判，茉莉奶白被判赔1030万元。由于LV的“老花”与中国柿蒂纹、宝相花同源，这一判决引发广泛讨论。中国传统纹样作为公共文化资源，是全社会共享的文化财富。企业将公共文化资源进行创造性改造、转化为注册商标，是法律所允许的正当权利。但这种转化，并不能对公共文化资源先占独享。
+
+**来源：** [https://jksrjhq\.com/videotype\-dong\-man/ri\-han\-dong\-man\-all\-all\-all/all\-page1](<https://jksrjhq.com/videotype-dong-man/ri-han-dong-man-all-all-all/all-page1>)
+
+---
+
+## 160. 香港生殖中心9个胚胎样本错8个
+
+近日，香港希愈生殖医学中心被曝发生人工受孕胚胎活检样本严重错配事故，9个样本错8个。目前，香港监管部门已将希愈原有的17项合法生殖医疗服务大幅缩减，仅保留配子、胚胎储存3项基础服务，其余14项治疗服务全部暂停。鉴于事件极可能涉及人为操作及刑事成分，香港警方重案组已全面介入彻查。
+
+**来源：** [https://jksrjhq\.com/videotype\-lun\-li\-pian/lun\-li\-pian\-all\-all\-all/all\-page1](<https://jksrjhq.com/videotype-lun-li-pian/lun-li-pian-all-all-all/all-page1>)
+
+---
+
+## 161. 中国无人机“违例”操作 全网破防
+
+连日来，广西多地出现洪涝灾害。洪灾中，救援人员用无人机调运物资、转移群众。原则上，无人机不许吊人，但人民大于原则。中国无人机这波“违例”操作，全网破防！
+
+**来源：** [https://jksrjhq\.com/videotype\-zong\-yi/all\-all\-all\-all/shang\-hai\-page1](<https://jksrjhq.com/videotype-zong-yi/all-all-all-all/shang-hai-page1>)
+
+---
+
+## 162. 霍思燕：鹦鹉不是我的
+
+近日，一张霍思燕身穿旗袍、与一只蓝金刚鹦鹉的合影在网络上疯狂流传。照片里人与鹦鹉气质都相当“霸气”，加上她家爱犬“霍蜜蜡”刚在意大利世界杯犬展夺冠，网友们调侃霍思燕是“御兽宗宗主”，还编出了“鹦鹉也夺冠”的故事。霍思燕辟谣：鹦鹉不是我的，是在泰国宠物展上碰到蹭拍留念。
+
+**来源：** [https://jksrjhq\.com/voddetail/ma\-li\-bi\-er\-de\-de\-zhong\-ji\-luo\-ma\-di\-guo\-wu\-jiang\-78130](<https://jksrjhq.com/voddetail/ma-li-bi-er-de-de-zhong-ji-luo-ma-di-guo-wu-jiang-78130>)
+
+---
+
+## 163. 女儿女婿自杀后妈妈投身防性侵宣传
+
+广东女子黄汶雯幼年遭亲属性侵导致长期心理创伤，2022年，黄汶雯和母亲吴梅坦白，但吴梅没有选择报警。2024年，黄汶雯在亲密关系中出现应激反应，在丈夫谢家振支持下报警，因无法证实犯罪事实发生，深圳警方作出不予立案决定，黄汶雯及丈夫因此相继自杀。近年来，其母吴梅投身防性侵宣传，通过课程学习、社区宣讲警示家长。
+
+**来源：** [https://jncyj\.com/%7B%7BGN\_DOMAIN\_LINK%7D%7D](<https://jncyj.com/%7B%7BGN_DOMAIN_LINK%7D%7D>)
+
+---
+
+## 164. 交警巡逻时发现驾驶员持“枪”
+
+近日，交警巡逻时，发现一车上驾驶员持“枪”。经拦截检查，该物品实为电动枪形玩具，但若装填铅弹则会具备杀伤力，枪形物随即被移交派出所处理。
+
+**来源：** [https://jnhfsw\.com/about/](<https://jnhfsw.com/about/>)
+
+---
+
+## 165. 巴威加速直奔浙闽 最强风雨时段来了
+
+从11日凌晨开始，“巴威”明显提速，以每小时30\-35公里的速度向西北方向快速移动，直奔浙闽沿海。今天开始，我们将迎来“巴威”风雨影响最强时段。
+
+**来源：** [https://jnhfsw\.com/about/index\.html](<https://jnhfsw.com/about/index.html>)
+
+---
+
+## 166. 现在说巴威直奔山东有点早
+
+7月11日，巴威直奔山东引发热议。中国天气网发文：能理解大家对台风“巴威”的关注，但说直奔山东是不是早了点，对山东的强降雨影响主要在13日前后。现在的“巴威”距离浙闽沿海都还有400多公里，要先直奔浙江、福建，登陆后深入内陆的路径还有变数，可能往江西或安徽或河南或江苏走，之后再考虑山东。
+
+**来源：** [https://jnhfsw\.com/guestbook/](<https://jnhfsw.com/guestbook/>)
+
+---
+
+## 167. 外出小于1小时不建议关空调
+
+近日，多地高温，大热天里，空调成了不少家庭的消暑“刚需”。外出少于1小时建议不要关空调：空调重启一次耗的电，相当于连续开二三十分钟，外出时将温度调高1\-2°C即可。
+
+**来源：** [https://jnhfsw\.com/guestbook/index\.html](<https://jnhfsw.com/guestbook/index.html>)
+
+---
+
+## 168. 35岁女高管立遗嘱将千万资产赠小姨
+
+沈阳一名35岁未婚女高管，将千万个人资产通过遗赠全部赠予悉心照料她的小姨。她与父母关系疏远，办理流程合规并增设资产隔离条款。该遗赠合法，但她仍需赡养父母，近年青年高净值人群立遗赠案例持续增多。
+
+**来源：** [https://jnhfsw\.com/information\.html](<https://jnhfsw.com/information.html>)
+
+---
+
+## 169. 菲律宾被整破防了
+
+7月10日至11日，中国学者提出巴丹群岛主权主张并发布41页报告驳斥菲律宾南海主张的法理依据，菲律宾被整破防了，菲律宾国防部长特奥多罗指责中方“意图控制太平洋”。
+
+**来源：** [https://jnhfsw\.com/job/](<https://jnhfsw.com/job/>)
+
+---
+
+## 170. 男子被困房顶 好友划泡沫板相救
+
+男子被困房顶 好友划泡沫板相救
+
+**来源：** [https://jnhfsw\.com/job/index\.html](<https://jnhfsw.com/job/index.html>)
+
+---
+
+## 171. 西班牙2\-1绝杀比利时
+
+北京时间11日，2026美加墨世界杯1/4决赛，西班牙2\-1战胜比利时，成为本届世界杯第二支四强球队。半决赛，他们将对阵法国队。
+
+**来源：** [https://jnhfsw\.com/product/](<https://jnhfsw.com/product/>)
+
+---
+
+## 172. 雷军让卖车的和卖房的都沉默了
+
+7月10日，雷军官宣小米全新SUV系列“澎程”，车内布局的“户型图”让卖车的和卖房的都沉默了！网友：第一次在车上看到户型图。
+
+**来源：** [https://jnhfsw\.com/product/114\.html](<https://jnhfsw.com/product/114.html>)
+
+---
+
+## 173. 世界杯期间京东即时零售冰品爆火
+
+2026年美加墨世界杯赛程过半，带火即时零售消费。京东秒送平台上的冰啤酒、果切、运动服饰等多品类销售迎来爆发式增长。数据显示，世界杯期间，京东秒送冰啤酒销量同比增长超98%，冰淇淋同比增长59%，冰果切同比增长111%。
+
+**来源：** [https://jnhfsw\.com/product/124\.html](<https://jnhfsw.com/product/124.html>)
+
+---
+
+## 174. 一觉醒来巴威又睁眼了
+
+今年第九号台风“巴威”11日零时再度增强为强台风级，11日6点，“巴威”的中心位于距离浙闽交界东偏南方向约540公里，中心最大风力有14级。预计，“巴威”将以每小时30至35公里的速度向西北方向快速移动，强度变化不大。
+
+**来源：** [https://jnhfsw\.com/product/126\.html](<https://jnhfsw.com/product/126.html>)
+
+---
+
+## 175. 周星驰官宣新一代星女郎雪野
+
+7月11日，周星驰通过经纪人陈震宇正式官宣新人演员雪野为新一代“星女郎”，她在同日上映的电影《功夫女足》中饰演同名角色，这是继林允之后时隔八年周星驰再度力捧的新人。
+
+**来源：** [https://jnhfsw\.com/product/52\.html](<https://jnhfsw.com/product/52.html>)
+
+---
+
+## 176. “我也是第一次用无人机运人”
+
+受台风“美莎克”残余环流持续影响，连日来，广西多地遭遇严重洪涝灾害，洪水围困村庄、道路中断、通信失联。一批科技装备冲上一线，搭起了一条条“生命线”，被网友称为“科技最好的样子”。32岁的陈思毅，就是带着科技装备冲到救援一线的一员，这次救援行动，也是他第一次用无人机运人。
+
+**来源：** [https://jnhfsw\.com/product/81\.html](<https://jnhfsw.com/product/81.html>)
+
+---
+
+## 177. 孕妇欲跳站台轻生 值班员一把拉回
+
+近日，列车进站前，一名孕妇欲跳下站台轻生，值班员发现异常后重点盯控，危急时刻将其一把拉回护在身下。
+
+**来源：** [https://jnhfsw\.com/product/87\.html](<https://jnhfsw.com/product/87.html>)
+
+---
+
+## 178. 中餐馆老板：哈兰德像小太阳少有低落
+
+近日，来自哈兰德家乡挪威布吕讷小镇的中餐馆老板王惠珠表示：哈兰德像小太阳，少有低落，也不会发脾气。
+
+**来源：** [https://jnhfsw\.com/product/89\.html](<https://jnhfsw.com/product/89.html>)
+
+---
+
+## 179. 霉霉婚后首现身
+
+北京时间7月11日，霉霉Taylor Swift和老公Travis Kelce在婚礼后首现身，两人牵手参加好友婚礼。霉霉一身粉色印花抹胸裙，草莓熊全黑西装，期间耳语交流，甜蜜恩爱。
+
+**来源：** [https://jnhfsw\.com/product/list\-5\.html](<https://jnhfsw.com/product/list-5.html>)
+
+---
+
+## 180. 多库6000万身价隐身
+
+7月11日，世界杯四分之一决赛，比利时1\-2不敌西班牙出局。比赛中效力于曼城的多库首发出战打满全场，但未能有所建树，目送球队出局。24岁的多库首次代表比利时参加世界杯，出战了全部的6场比赛，共计329分钟，但贡献0球0助攻。身价6000万欧的他并未拿出在俱乐部时的进攻效率，几乎整届世界杯都在隐身。
+
+**来源：** [https://jnrfhbl\.com/\.npmrc](<https://jnrfhbl.com/.npmrc>)
+
+---
+
+## 181. 中国为“黄金气体”设闸
+
+7月10日，商务部、海关总署发布公告2026年第29号，依据《中华人民共和国对外贸易法》相关规定，决定对氦气实施临时禁止出口管理。氦气被誉为“黄金气体”，是极度稀缺的战略性资源。临时禁止出口管理，是保障氦气资源安全、引导氦气规范流通，进而推动我国氦气及相关行业高质量发展的重要举措，有利于维护全球气体供应链稳定。
+
+**来源：** [https://jnrfhbl\.com/vod/bu\-yi\-yang\-de\-tian\-kong\-125291](<https://jnrfhbl.com/vod/bu-yi-yang-de-tian-kong-125291>)
+
+---
+
+## 182. 姆巴佩亚马尔从俱乐部对抗到世界杯
+
+北京时间7月15日03:00，世界杯半决赛法国VS西班牙，姆巴佩和亚马尔从俱乐部对抗到世界杯，强强对决谁能晋级引发热议。
+
+**来源：** [https://jnrfhbl\.com/vod/jing\-gong\-zhi\-niao\-184415](<https://jnrfhbl.com/vod/jing-gong-zhi-niao-184415>)
+
+---
+
+## 183. 上次发布暴雨红色预警是两年前
+
+今年第9号台风“巴威”来袭，11日开始，风雨将进入最强影响时段。中央气象台7月11日10时升级发布暴雨红色预警。红色预警是最高级别的暴雨预警，上一次中央气象台发布暴雨红色预警，还是两年前的2024年6月29日至30日。
+
+**来源：** [https://jnrfhbl\.com/vod/k\_fca046d43c5c\-189850](<https://jnrfhbl.com/vod/k_fca046d43c5c-189850>)
+
+---
+
+## 184. 维尼修斯公开道歉
+
+对于巴西队无缘2026美加墨世界杯八强，巴西队球星维尼修斯当地时间10日在社交平台上发帖道歉。“挫败感很强。”维尼修斯当天在帖子中称，“我们拥有一支实力足以取得更好成绩的队伍，但我们未能如愿。我为此道歉，我将为我们重返世界之巅的梦想而战。”
+
+**来源：** [https://jnrfhbl\.com/vod/li\-ya\-177344](<https://jnrfhbl.com/vod/li-ya-177344>)
+
+---
+
+## 185. 三星堆有最新发现
+
+四川省文物考古研究院10日公布三星堆青铜器最新研究成果，专家们通过对青铜顶尊跪坐人像的深入研究发现，这件器物并非抽象的神话符号，而是真实祭祀仪典的生动再现，反映出数千年前古蜀先民对神灵的崇拜。
+
+**来源：** [https://jnrfhbl\.com/vod/lian\-lian\-zhen\-qing\-184144](<https://jnrfhbl.com/vod/lian-lian-zhen-qing-184144>)
+
+---
+
+## 186. 时隔两年再发暴雨“红警” 意味什么
+
+中央气象台11日升级发布最高级别的暴雨红色预警，这是今年首个，也是时隔两年再度出现的暴雨“红警”。当暴雨红色预警发布时，说明一天降雨的工作量在3小时之内就完成了，可见雨势之急、雨量之大，疾风骤雨说的就是这个情况。
+
+**来源：** [https://jnrfhbl\.com/vod/she\-nv\-177386](<https://jnrfhbl.com/vod/she-nv-177386>)
+
+---
+
+## 187. 南昌通报“业委会副主任卷走161万”
+
+7月11日，南昌通报“小区业委会副主任卷走161万失联”：小区业委会已向公安机关报案，公安机关已正式立案侦查。
+
+**来源：** [https://jnrfhbl\.com/vod/wei\-er\-di\-83096](<https://jnrfhbl.com/vod/wei-er-di-83096>)
+
+---
+
+## 188. 习近平同金正恩互致贺电
+
+习近平同朝鲜劳动党总书记、国务委员会委员长金正恩就《中朝友好合作互助条约》签订65周年互致贺电。
+
+**来源：** [https://jnrfhbl\.com/voddetail/ba\-ba\-xian\-sheng\-33582](<https://jnrfhbl.com/voddetail/ba-ba-xian-sheng-33582>)
+
+---
+
+## 189. 台风巴威登陆地点有变
+
+最新预计台风“巴威”将于7月11日半夜前后在浙江省苍南至三门一带登陆，登陆地点有变。此前预报称“巴威”将于12日凌晨在浙江台州至福建福鼎一带沿海登陆。
+
+**来源：** [https://jnrfhbl\.com/voddetail/chao\-zhou\-hu\-nv\-30055](<https://jnrfhbl.com/voddetail/chao-zhou-hu-nv-30055>)
+
+---
+
+## 190. 浙江海边已掀起10多米巨浪
+
+7月10日，受今年第9号强台风“巴威”外围环流影响，台州温岭石塘金沙滩海域风浪骤增，狂风裹挟潮水掀起十余米巨浪，浪墙接连猛烈撞击礁石与海岸堤坝，白色浪花漫天飞溅，场面惊心动魄。
+
+**来源：** [https://jnrfhbl\.com/vodseed/\-112132\-default\-1](<https://jnrfhbl.com/vodseed/-112132-default-1>)
+
+---
+
+## 191. 如何“顶格”应对台风巴威
+
+近日，台风“巴威”进入24小时警戒，如何“顶格”应对？山区的隐患不仅仅是地灾，还有洪水和山洪，各部门、各区需严格地按照预案落实防范措施。根据雨情、水情的变化进行动态研判，必要的时候对风险区在现有的人员转移基础上进行扩面转移，要规避风险，确保应转尽转、不落一户。
+
+**来源：** [https://jnrfhbl\.com/vodseed/ba\-mei\-tu\-5436\-default\-1](<https://jnrfhbl.com/vodseed/ba-mei-tu-5436-default-1>)
+
+---
+
+## 192. 温州商铺老板为挡台风砌了一堵墙
+
+温州商铺老板为挡台风砌了一堵墙
+
+**来源：** [https://jnrfhbl\.com/vodseed/da\-jin\-zhi\-16200\-default\-1](<https://jnrfhbl.com/vodseed/da-jin-zhi-16200-default-1>)
+
+---
+
+## 193. 周星驰电影《功夫女足》票房破亿
+
+数据显示，截至7月11日11时32分，影片《功夫女足》票房突破1亿。
+
+**来源：** [https://jnrfhbl\.com/vodseed/e\-nv\-bu\-luo\-ge\-176840\-default\-1](<https://jnrfhbl.com/vodseed/e-nv-bu-luo-ge-176840-default-1>)
+
+---
+
+## 194. 为什么不能用炸弹摧毁台风
+
+为什么不能用炸弹摧毁台风？主要有三个方面的原因：一、能量与体量差距悬殊；二、爆炸破坏无法持续；三、爆炸反为台风“充能”。
+
+**来源：** [https://jnrfhbl\.com/vodseed/hua\-hua\-gong\-zi\-xing\-gan\-nei\-yi\-176897\-default\-1](<https://jnrfhbl.com/vodseed/hua-hua-gong-zi-xing-gan-nei-yi-176897-default-1>)
+
+---
+
+## 195. 瓜农2200斤西瓜收瓜贩仅出价20元
+
+近日，河南西瓜滞销，瓜农大姨含泪发声：收瓜贩想用20元买走2200斤西瓜！希望夏天甜的不只是瓜，还有瓜农的日子。
+
+**来源：** [https://jnrfhbl\.com/vodseed/huo\-wu\-jian\-dian\-ma\-ye\-zong\-hui\-176868\-default\-1](<https://jnrfhbl.com/vodseed/huo-wu-jian-dian-ma-ye-zong-hui-176868-default-1>)
+
+---
+
+## 196. 台风巴威最新动态
+
+台风“巴威”逼近我国东部沿海，记者抵达台风影响核心区，为您带来第一手现场实况。
+
+**来源：** [https://jnrfhbl\.com/vodseed/re\-xian\-wu\-nv\-173244\-default\-1](<https://jnrfhbl.com/vodseed/re-xian-wu-nv-173244-default-1>)
+
+---
+
+## 197. “龙蟒组合”时隔5年合体
+
+2026全锦赛双打名单正式出炉！马龙许昕的龙蟒组合，时隔五年再度合体征战男双。
+
+**来源：** [https://jnrfhbl\.com/vodseed/sui\-de\-qing\-ren\-176634\-default\-1](<https://jnrfhbl.com/vodseed/sui-de-qing-ren-176634-default-1>)
+
+---
+
+## 198. 最高级别！今年首个暴雨红色预警发布
+
+7月11日10时，中央气象台发布暴雨红色预警：多地有暴雨，部分地区有大暴雨，局地特大暴雨。同时部分地区伴有短时强降水，局地有雷暴大风或冰雹等强对流天气。
+
+**来源：** [https://jnrfhbl\.com/vodseed/ta\-mu\-qin\-de\-fang\-zi\-176594\-default\-1](<https://jnrfhbl.com/vodseed/ta-mu-qin-de-fang-zi-176594-default-1>)
+
+---
+
+## 199. 杭州暴雨大量车辆被淹系谣言
+
+7月5日，建德公安接到群众报警，反映有人在网络平台发布建德暴雨洪水虚假视频，不实信息快速传播，引发不良社会影响。接报后，警方立即开展核查，迅速锁定违法嫌疑人。经查，违法行为人廖某某为博取网络流量、吸引大众关注，动歪心思炮制虚假灾情内容。目前，公安机关已依法对廖某某作出行政拘留七日的行政处罚。
+
+**来源：** [https://jnrfhbl\.com/vodseed/you\-ji\-dui\-yuan\-172212\-default\-1](<https://jnrfhbl.com/vodseed/you-ji-dui-yuan-172212-default-1>)
+
+---
+
+## 200. 新娘结婚睡过头醒来看见满屋人
+
+7月11日，山东枣庄新娘代女士婚礼前一日因疲惫睡至近11点，醒来发现满屋亲友才记起婚期，按当地两天婚礼习俗未影响流程。
+
+**来源：** [https://jnrfhbl\.com/vodseed/yue\-hui\-xing\-bu\-xing\-183596\-default\-1](<https://jnrfhbl.com/vodseed/yue-hui-xing-bu-xing-183596-default-1>)
+
+
